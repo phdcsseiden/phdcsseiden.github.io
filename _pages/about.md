@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain G. Shumbusho, MS " 
+title: "Alain G. Shumbusho " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
@@ -50,67 +50,6 @@ National Society of Black Engineers
 IEEE (The Institute of Electrical and Electronics Engineers) - Member
 
 ACM (Association for Computing Machinery) - Member
-
-## Languages
-
-English, French, Kinyarwanda
-
-## Other diplomas
-
-DELF B2: Diplôme d'études en langue française (Diploma in French Language Studies), a degree of French-language abilities for non-native speakers of French administered by France Education International (France Éducation International or FEI) for France's Ministry of Education, among them.
-
-## I.T Certification
-
-Cisco Certified
-
-## Awards and Honors
-
-UNIDO (United Nations Industrial Development Organization) - Youth for Change Appreciation
-
-Imbuto Foundation & The Ministry of Youth Rwanda - Youth Connekt Award
-
-African Union H.Q - Awarded Certificate of Appreciation 
-
-Es'hailSat - Qatar Satellite Company - Recognition Award
-
-Pace University - Presidential Scholarship 
-
-The Webby Awards Fellow
-
-
-## Community
-
-ECOSOC YF Facilitator at the United Nations HQ in New York City, United States
-
-Global Shapers - New York City Hub 
-
-UNA-USA
-
-RCA Tri-State Area Youth Leader (New York, New Jersey & Connecticut)
-
-Times Square Church Volunteer
-
-## Charity
-
-Alain actively participates in several charitable projects that aid underprivileged children and adults in Africa, particularly Rwanda-Africa.
-
-
-## Life
-
-He takes pleasure in podcasts, reading nonfiction, and swimming. 
-
-## Personal details
-
-Alain is observing and praying to fit his future wife, bride-to-be, or life partner, guided by a Christian belief system.
-
-## Social Media
-
-N/A
-
-
-## Location 
-
-New York City, New York, United States
 
 
 ## BIO CURRENT AS OF 2023
