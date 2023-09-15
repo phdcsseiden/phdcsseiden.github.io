@@ -8,9 +8,9 @@ redirect_from:
   - /about.html
 ---
 
-
-<img src="Headshotwoo.jpg" alt=" Headshotwoo.jpg " width="500" height="333">
-
+<body>
+<img src="Headshotwoo.jpg" alt=" " width="500" height="333">
+</body>
 
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
