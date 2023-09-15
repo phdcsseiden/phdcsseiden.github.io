@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<img src="Headshotwoo.jpg" alt="Headshotwoo.jpg" width="500" height="333">
+<img src="Headshotwoo.jpg" alt="Alain" width="500" height="333">
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
