@@ -10,6 +10,10 @@ redirect_from:
 
 
 
+Headshotwoo.jpg
+
+
+
 
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
