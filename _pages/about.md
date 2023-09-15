@@ -9,5 +9,4 @@ redirect_from:
   - /about.html
 ---
 
-
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
