@@ -10,3 +10,6 @@ redirect_from:
 ---
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
+
+
+Coming Soon
