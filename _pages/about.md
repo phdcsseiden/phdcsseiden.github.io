@@ -9,8 +9,19 @@ redirect_from:
 ---
 
 
+<!DOCTYPE html>
+<html>
+<body>
 
-Headshotwoo.jpg
+<h2>HTML Image</h2>
+<img src="Headshotwoo.jpg" alt="Trulli" width="500" height="333">
+
+</body>
+</html>
+
+
+
+
 
 
 
