@@ -8,23 +8,7 @@ redirect_from:
   - /about.html
 ---
 
-
-<html>
-<body>
-
-<h2></h2>
 <img src="Headshotwo.jpg" alt="Trulli" width="500" height="333">
-
-</body>
-</html>
-
-
-
-
-
-
-
-
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
