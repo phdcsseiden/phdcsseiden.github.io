@@ -82,9 +82,10 @@ analytics:
 author:
   name             : ""
   avatar           : "Headshotwoo.jpg"
-  bio              : "STEM Grad - He/Him/His"
+  bio              : "He/Him"
+  bio              : #"STEM Grad - He/Him/His"
   employer         : 
-  location         : "Manhattan NYC, United States"
+  location         : #"Manhattan NYC, United States"
   googlescholar    : #"https://scholar.google.com/citations?user=2vtePtcAAAAJ&hl=en&authuser=1"
   email            :
   researchgate     :  # example: "https://www.researchgate.net/profile/yourprofile"
