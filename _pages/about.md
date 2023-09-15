@@ -1,8 +1,6 @@
 ---
 permalink: /
 title: "Alain G. Shumbusho " 
-title: "PhD Student, Pace University " 
-title: "AS40555P[at]pace[dot]edu " 
 
 excerpt: "About me"
 author_profile: true
