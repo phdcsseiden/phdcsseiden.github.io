@@ -9,7 +9,9 @@ redirect_from:
 ---
 
 <body>
-<img src="Headshotwoo.jpg" alt=" " width="500" height="333">
+  
+<img src="Headshotwoo.jpg" alt=" Headshotwoo.jpg " width="500" height="333">
+
 </body>
 
 
