@@ -52,10 +52,6 @@ He oversaw business operations for himself and his partners in North America and
 
 The City-Country Project, among others.
 
-## Find the link below to the Images and Archives for almost everything for Alain G. Shumbusho
-
-<a href="https://flic.kr/ps/42M3NQ">Visit Alain G. Shumbusho Pictures</a>
-
 ## U.S Security Clearance
 
 Granted & Active
