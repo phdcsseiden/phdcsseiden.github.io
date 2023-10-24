@@ -103,16 +103,9 @@ RCA (Rwandan Community Abroad) Tri-State Area Youth Leader (New York, New Jersey
 
 Times Square Church Volunteer
 
-## Charity
-
-Alain actively participates in several charitable projects that aid underprivileged children and adults in Africa, particularly Rwanda-Africa.
-
-
 ## Life
 
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
 
 
 ## FALL SEMESTER 2023
-
-<b> Coming Soon </b>
