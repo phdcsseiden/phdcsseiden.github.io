@@ -11,16 +11,6 @@ redirect_from:
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
----
-permalink: /
-title: "Alain G. Shumbusho" 
-excerpt: "About me"
-author_profile: true
-redirect_from: 
-  - /about/
-  - /about.html
----
-
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
 Build, test, and deploy a web application using MongoDB, Express, React, Node.js, APIs, and a front-end web application using React.
