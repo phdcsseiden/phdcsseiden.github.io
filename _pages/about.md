@@ -104,4 +104,4 @@ Times Square Church Volunteer
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
 
 
-## FALL SEMESTER 2023
+## FALL 2023
