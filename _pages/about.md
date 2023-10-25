@@ -40,10 +40,6 @@ Cisco Certified
 
 DELF B2: Diplôme d'études en langue française (Diploma in French Language Studies), a degree of French-language abilities for non-native speakers of French administered by France Education International (France Éducation International or FEI) for France's Ministry of Education, among them.
 
-## Military Training
-
-As a Civilian, Alain was fortunate to receive Executive training in Colorado Springs, Colorado, United States.
-
 ## Past Projects
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
@@ -79,17 +75,6 @@ Pace University - Presidential Scholarship
 The Webby Awards Fellow
 
 
-## Community
-
-ECOSOC YF Facilitator at the United Nations HQ in New York City, United States
-
-Global Shapers, an Initiative of the World Economic Forum - New York City Hub 
-
-UNA-USA
-
-RCA (Rwandan Community Abroad) Tri-State Area Youth Leader (New York, New Jersey & Connecticut) - Until recently, 2023
-
-Times Square Church Volunteer
 
 ## Life
 
