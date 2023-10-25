@@ -52,14 +52,6 @@ He oversaw business operations for himself and his partners in North America and
 
 The City-Country Project, among others.
 
-## U.S Security Clearance
-
-Granted & Active
-
-## Medical Clearance
-
-Cleared 
-
 ## Professional Membership 
 
 National Society of Black Engineers
