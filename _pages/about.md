@@ -45,7 +45,7 @@ He handles the entire product build-out, including software development on the c
 
 ## Education
 
-PhD Student, Pace University, New York, United States.
+Computer Science Ph.D. Student, Pace University, New York, United States.
 
 He holds a bachelor's degree in Information Technology and a Master of Science in Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States. He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
@@ -61,10 +61,6 @@ DELF B2: Diplôme d'études en langue française (Diploma in French Language Stu
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
-## Current Project
-
-The City-Country Project, among others.
-
 ## Professional Membership 
 
 National Society of Black Engineers
@@ -76,20 +72,6 @@ ACM (Association for Computing Machinery) - Member
 ## Languages
 
 English, French, Kinyarwanda
-
-## Awards and Honors
-
-UNIDO (United Nations Industrial Development Organization) - Youth for Change Appreciation
-
-Imbuto Foundation & The Ministry of Youth Rwanda - Youth Connekt Award
-
-African Union H.Q - Awarded Certificate of Appreciation 
-
-Es'hailSat - Qatar Satellite Company - Recognition Award
-
-Pace University - Presidential Scholarship 
-
-The Webby Awards Fellow
 
 
 
