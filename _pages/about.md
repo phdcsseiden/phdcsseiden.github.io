@@ -53,20 +53,6 @@ DELF B2: Diplôme d'études en langue française (Diploma in French Language Stu
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
-## Professional Membership 
-
-National Society of Black Engineers
-
-IEEE Member
-
-ACM Member
-
-## Languages
-
-English, French, Kinyarwanda
-
-
-
 
 -----------------------------------------------------------------------------------------------------------------------------
 
@@ -99,13 +85,7 @@ The City Project
 As of May 2023, granted & active
 
 
-## Professional Membership 
 
-National Society of Black Engineers
-
-IEEE Member
-
-ACM Member
 
 
 ## Community
@@ -180,13 +160,13 @@ DELF B2: Diplôme d'études en langue française (Diploma in French Language Stu
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
-## Professional Membership 
+### Professional Membership 
 
 National Society of Black Engineers
 
-IEEE (The Institute of Electrical and Electronics Engineers) - Member
+IEEE Member
 
-ACM (Association for Computing Machinery) - Member
+ACM Member
 
 ## Languages
 
