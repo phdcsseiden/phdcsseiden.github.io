@@ -8,6 +8,10 @@ redirect_from:
   - /about.md
 ---
 
+
+Computer Science PhD Student, New York City, United States
+
+
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
