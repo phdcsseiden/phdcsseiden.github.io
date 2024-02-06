@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> Science PhD Student, Manhattan - United States </b>
+<b> Science PhD Student, East Coast - United States </b>
 
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
