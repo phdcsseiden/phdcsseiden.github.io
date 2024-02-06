@@ -33,22 +33,6 @@ Oversees software application development, release, and maintenance per business
 
 He handles the entire product build-out, including software development on the client and server sides.
 
-## Research Interests
-
-
-
-## Affiliation
-
-
-
-
-## Fellowship
-
-
-
-## Topics of Interests
-
-## Fellows
 
 
 ## Education
