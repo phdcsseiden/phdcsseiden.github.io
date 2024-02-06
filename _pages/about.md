@@ -87,7 +87,6 @@ As of May 2023, granted & active
 
 
 
-
 ## Community
 
 -ECOSOC YF Facilitator at the United Nations HQ in New York City, NY, United States
@@ -106,23 +105,9 @@ Alain actively participates in a number of charitable projects that aid underpri
 
  N/A
 
-## Life
-
-He takes pleasure in podcasts, reading nonfiction, and swimming. 
-
-## Email
-
-AS40555P [at] pace [dot] edu  
-
-
-## BIO CURRENT AS OF 2023
-
 
 
 --------------------------------------------------------------------------------------------------------------------------------------------
-
-
-
 
 
 
@@ -176,7 +161,6 @@ English, French, Kinyarwanda
 ## Life
 
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
-
 
 
 ## BIO CURRENT AS OF 2023
