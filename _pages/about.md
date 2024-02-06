@@ -8,9 +8,7 @@ redirect_from:
   - /about.md
 ---
 
-
 <b> Science PhD Student, East Coast - United States </b>
-
 <b> Tehilah . Hallel </b>
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
