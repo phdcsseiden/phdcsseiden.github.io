@@ -31,6 +31,9 @@ Computer Science Ph.D. Student, Pace University, New York, United States.
 
 He holds a bachelor's degree in Information Technology and a Master of Science in Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States. He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
+He studied in the United States and Switzerland and obtained multiple degrees, including information technology and engineering.
+
+
 
 
 ## Past Projects
