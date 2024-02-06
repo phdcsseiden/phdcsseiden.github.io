@@ -17,6 +17,8 @@ redirect_from:
 
 
 
+
+
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
 Build, test, and deploy a web application using MongoDB, Express, React, Node.js, APIs, and a front-end web application using React.
