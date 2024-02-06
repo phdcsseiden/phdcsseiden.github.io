@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> Computer Science PhD Student, New York City, US </b>
+<b> Science PhD Student, New York City, US </b>
 
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
