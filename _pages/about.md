@@ -37,13 +37,12 @@ He holds a bachelor's degree in Information Technology and a Master of Science i
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
-
+H
 -----------------------------------------------------------------------------------------------------------------------------
 
 
-
-
-He handles the entire product build-out, including software development on the client and server sides.
+P
+-----------------------------------------------------------------------------------------------------------------------------
 
 He holds a bachelor's degree in Information Technology and recently graduated with a Master of Science in Computer Software Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States.
 
