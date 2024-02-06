@@ -83,13 +83,6 @@ English, French, Kinyarwanda
 
 
 
-## Life
-
-He takes pleasure in podcasts, reading nonfiction, and swimming. 
-
-
-## FALL 2023
-
 
 -----------------------------------------------------------------------------------------------------------------------------
 
