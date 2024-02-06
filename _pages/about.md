@@ -8,7 +8,7 @@ redirect_from:
   - /about.md
 ---
 
-<b> Science PhD Student, East Coast - United States. </b>
+<b> Science PhD Student, East Coast, United States. </b>
 
 
 <b> Tehilah . Hallel </b>
