@@ -18,13 +18,6 @@ redirect_from:
 
 
 
-
-
-
-H
-
-
-
 ## Education
 
 Computer Science Ph.D. Student, Pace University, New York, United States.
@@ -34,14 +27,10 @@ He holds a bachelor's degree in Information Technology and a Master of Science i
 He studied in the United States and Switzerland and obtained multiple degrees, including information technology and engineering.
 
 
-
-
 ## Past Projects
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
-
-H
------------------------------------------------------------------------------------------------------------------------------
+----------------------------------------------------------------------------------------------------------------------------
 
 
 P
