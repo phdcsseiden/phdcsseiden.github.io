@@ -183,22 +183,6 @@ Oversees software application development, release, and maintenance per business
 
 He handles the entire product build-out, including software development on the client and server sides.
 
-## Research Interests
-
-
-
-## Affiliation
-
-
-
-
-## Fellowship
-
-
-
-## Topics of Interests
-
-## Fellows
 
 
 ## Education
@@ -232,13 +216,13 @@ ACM (Association for Computing Machinery) - Member
 English, French, Kinyarwanda
 
 
-
 ## Life
 
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
 
 
-## FALL 2023
+
+## BIO CURRENT AS OF 2023
 
 
 
