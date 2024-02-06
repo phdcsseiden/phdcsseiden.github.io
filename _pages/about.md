@@ -1,12 +1,11 @@
 ---
 permalink: /
 title: "Alain G. Shumbusho " 
-
 excerpt: "About me"
 author_profile: true
 redirect_from: 
   - /about/
-  - /about.html
+  - /about.md
 ---
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
