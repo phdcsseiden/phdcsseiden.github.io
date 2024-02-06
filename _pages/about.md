@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-Computer Science PhD Student, New York City, United States
+Computer Science PhD Student, New York City,US
 
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
