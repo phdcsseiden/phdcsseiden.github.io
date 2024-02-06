@@ -57,9 +57,9 @@ He oversaw business operations for himself and his partners in North America and
 
 National Society of Black Engineers
 
-IEEE (The Institute of Electrical and Electronics Engineers) - Member
+IEEE Member
 
-ACM (Association for Computing Machinery) - Member
+ACM Member
 
 ## Languages
 
