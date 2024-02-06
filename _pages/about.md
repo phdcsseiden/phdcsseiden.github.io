@@ -9,9 +9,13 @@ redirect_from:
 ---
 
 <b> Science PhD Student, East Coast - United States </b>
+
+
 <b> Tehilah . Hallel </b>
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
+
+
 
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
