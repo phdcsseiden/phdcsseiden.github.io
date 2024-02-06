@@ -80,8 +80,8 @@ analytics:
 
 # Site Author
 author:
-  name             : "Alain G. Shumbusho"
-  avatar           : "Headshotwoo.jpg"
+  name             : #"Alain G. Shumbusho"
+  avatar           : #"Headshotwoo.jpg"
   bio              : #"He/Him"
   bio              : #"STEM Grad - He/Him/His"
   employer         : 
