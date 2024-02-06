@@ -165,23 +165,6 @@ AS40555P [at] pace [dot] edu
 --------------------------------------------------------------------------------------------------------------------------------------------
 
 
----
-permalink: /
-title: "Alain G. Shumbusho " 
-excerpt: "About me"
-author_profile: true
-redirect_from: 
-  - /about/
-  - /about.md
----
-
-<b> Science PhD Student, East Coast - United States </b>
-
-
-<b> Tehilah . Hallel </b>
-
-<img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
-
 
 
 
