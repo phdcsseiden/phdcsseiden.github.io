@@ -21,7 +21,7 @@ redirect_from:
 
 
 
-He handles the entire product build-out, including software development on the client and server sides.
+H
 
 
 
