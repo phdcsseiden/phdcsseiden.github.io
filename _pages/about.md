@@ -27,19 +27,14 @@ He holds a bachelor's degree in Information Technology and a Master of Science i
 He studied in the United States and Switzerland and obtained multiple degrees, including information technology and engineering.
 
 
-## Past Projects
-He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
-
-----------------------------------------------------------------------------------------------------------------------------
-
 
 P
 -----------------------------------------------------------------------------------------------------------------------------
 
 He holds a bachelor's degree in Information Technology and recently graduated with a Master of Science in Computer Software Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States.
 
-## Past Projects
-He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
+
+
 
 ## Upcoming Project
 
@@ -48,8 +43,6 @@ The City Project
 ## U.S Security Clearance
 
 As of May 2023, granted & active
-
-
 
 
 ## Community
