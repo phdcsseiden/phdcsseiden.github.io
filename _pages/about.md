@@ -128,7 +128,7 @@ English, French, Kinyarwanda
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
 
 
-## BIO CURRENT AS OF 2023
+## Bio Current as of 2023 
 
 
 
