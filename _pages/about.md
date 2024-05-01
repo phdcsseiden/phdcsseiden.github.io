@@ -59,20 +59,6 @@ Yale University: Executive Education Diploma
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
-## Awards and Honors
-
--UNIDO (United Nations Industrial Development Organization) - Youth for Change Appreciation
-
--Imbuto Foundation & The Ministry of Youth Rwanda - Youth Connekt Award
-
--African Union H.Q - Awarded Certificate of Appreciation
-
--Es'hailSat - Qatar Satellite Company - Recognition Award
-
--Pace University - P. Scholarship
-
--The Webby Awards Fellow
-
 ## Upcoming Project
 
 The Country, Continent Projects.
@@ -92,6 +78,22 @@ National Society of Black Engineers
 IEEE Member
 
 ACM Member
+
+
+## Awards and Honors
+
+-UNIDO (United Nations Industrial Development Organization) - Youth for Change Appreciation
+
+-Imbuto Foundation & The Ministry of Youth Rwanda - Youth Connekt Award
+
+-African Union H.Q - Awarded Certificate of Appreciation
+
+-Es'hailSat - Qatar Satellite Company - Recognition Award
+
+-Pace University - P. Scholarship
+
+-The Webby Awards Fellow
+
 
 ## Community
 
