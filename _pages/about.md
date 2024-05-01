@@ -61,7 +61,17 @@ He oversaw business operations for himself and his partners in North America and
 
 ## Awards and Honors
 
+-UNIDO (United Nations Industrial Development Organization) - Youth for Change Appreciation
 
+-Imbuto Foundation & The Ministry of Youth Rwanda - Youth Connekt Award
+
+-African Union H.Q - Awarded Certificate of Appreciation
+
+-Es'hailSat - Qatar Satellite Company - Recognition Award
+
+-Pace University - P. Scholarship
+
+-The Webby Awards Fellow
 
 ## Upcoming Project
 
