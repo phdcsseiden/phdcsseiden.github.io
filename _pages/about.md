@@ -12,54 +12,7 @@ redirect_from:
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
-## Education
 
-Computer Science Ph.D. Student, Pace University, New York, United States.
-
-He holds a bachelor's degree in Information Technology and a Master of Science in Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States. He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
-
-He studied in the United States and Switzerland and obtained multiple degrees, including information technology and engineering.
-
-
-
-P
------------------------------------------------------------------------------------------------------------------------------
-
-He holds a bachelor's degree in Information Technology and recently graduated with a Master of Science in Computer Software Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States.
-
-
-
-
-## Upcoming Project
-
-The City Project
-
-## U.S Security Clearance
-
-As of May 2023, granted & active
-
-
-## Community
-
--ECOSOC YF Facilitator at the United Nations HQ in New York City, NY, United States
-
--Global Shapers Community - New York City Hub
-
--UNA-USA
-
--RCA Tri-state area youth leader (New York, New Jersey & Connecticut)
-
-## Charity
-
-Alain actively participates in a number of charitable projects that aid underprivileged children and adults in Africa, particularly in Rwanda-Africa.
-
-## Social Media
-
- N/A
-
-
-
---------------------------------------------------------------------------------------------------------------------------------------------
 
 
 
@@ -97,6 +50,7 @@ DELF B2: Diplôme d'études en langue française (Diploma in French Language Stu
 Yale University: Executive Education
 
 ## Past Projects
+
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
 
@@ -108,14 +62,39 @@ IEEE Member
 
 ACM Member
 
+## Community
+
+-ECOSOC YF Facilitator at the United Nations HQ in New York City, NY, United States
+
+-Global Shapers Community - New York City Hub
+
+-UNA-USA
+
+-Former RCA (Rwanda Community Abroad) Tri-state area Youth Leader (New York, New Jersey & Connecticut)
+
+## Charity
+
+Alain actively participates in a number of charitable projects that aid underprivileged children and adults in Africa, particularly in Rwanda-Africa.
+
+## Social Media
+
+ N/A
+
 ## Languages
 
 English, French, Kinyarwanda
 
-
 ## Life
 
 He takes pleasure in podcasts, reading, and swimming. 
+
+ ## U.S Security Clearance
+
+As of May 2023, granted & active
+
+## Upcoming Project
+
+The Country, Continent Projects.
 
 
 ## Bio Current as of 2023 
