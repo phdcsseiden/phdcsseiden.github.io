@@ -39,6 +39,11 @@ He handles the entire product build-out, including software development on the c
 
 He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
+
+## Languages
+
+English, French, Kinyarwanda
+
 ## I.T Certification
 
 Cisco Certified
@@ -47,11 +52,16 @@ Cisco Certified
 
 DELF B2: Diplôme d'études en langue française (Diploma in French Language Studies), a degree of French-language abilities for non-native speakers of French administered by France Education International (France Éducation International or FEI) for France's Ministry of Education, among them.
 
-Yale University: Executive Education
+Yale University: Executive Education Diploma
 
 ## Past Projects
 
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
+
+
+## Awards and Honors
+
+
 
 ## Upcoming Project
 
@@ -91,9 +101,6 @@ Alain actively participates in a number of charitable projects that aid underpri
 
  N/A
 
-## Languages
-
-English, French, Kinyarwanda
 
 ## Life
 
