@@ -14,8 +14,6 @@ redirect_from:
 
 
 
-
-
 Alain is pleased to have you visit. A tech entrepreneur and software engineer, he is. The following, among others, are just a few examples of his web and application development abilities:
 
 Build, test, and deploy a web application using MongoDB, Express, React, Node.js, APIs, and a front-end web application using React.
@@ -31,12 +29,11 @@ Oversees software application development, release, and maintenance per business
 He handles the entire product build-out, including software development on the client and server sides.
 
 
-
 ## Education
 
-Seidenberg School Of CSIS - Pace University / Ph.D (Dropped Out for Duty)
-Pace University (MS) 
-U.S Military Academy at West Point (BS)
+-Seidenberg School Of CSIS - Pace University / Ph.D (Dropped Out for Duty)
+-Seidenberg School Of CSIS - Pace University (MS) 
+-U.S Military Academy at West Point (BS)
 
 He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
@@ -54,6 +51,17 @@ Yale University: Executive Education
 
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
 
+## Upcoming Project
+
+The Country, Continent Projects.
+
+## U.S Security Clearance
+
+As of May 2023, granted & active
+
+## Medical Clearance
+
+In Process
 
 ### Professional Membership 
 
@@ -88,14 +96,6 @@ English, French, Kinyarwanda
 ## Life
 
 He takes pleasure in podcasts, reading, and swimming. 
-
-## U.S Security Clearance
-
-As of May 2023, granted & active
-
-## Upcoming Project
-
-The Country, Continent Projects.
 
 
 ## Bio Current as of 2023 
