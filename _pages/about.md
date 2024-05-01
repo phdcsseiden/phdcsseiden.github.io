@@ -11,12 +11,7 @@ redirect_from:
 <b> Science PhD Student, East Coast, United States. </b>
 
 
-<b> Tehilah . Hallel </b>
-
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
-
-
-
 
 ## Education
 
@@ -87,9 +82,10 @@ He handles the entire product build-out, including software development on the c
 
 ## Education
 
-Computer Science Ph.D. Student, Pace University, New York, United States.
 
-He holds a bachelor's degree in Information Technology and a Master of Science in Engineering. He is a graduate of Babson College, Wellesley, Mass and Pace University, Manhattan-NYC, United States. He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
+
+
+He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
 ## I.T Certification
 
@@ -98,6 +94,8 @@ Cisco Certified
 ## Other diplomas
 
 DELF B2: Diplôme d'études en langue française (Diploma in French Language Studies), a degree of French-language abilities for non-native speakers of French administered by France Education International (France Éducation International or FEI) for France's Ministry of Education, among them.
+
+Yale University: Executive Education
 
 ## Past Projects
 He oversaw business operations for himself and his partners in North America and collaborated on innovation projects with companies, including Verizon, AT&T, and the Cortec Group.
@@ -118,7 +116,7 @@ English, French, Kinyarwanda
 
 ## Life
 
-He takes pleasure in podcasts, reading nonfiction, and swimming. 
+He takes pleasure in podcasts, reading, and swimming. 
 
 
 ## Bio Current as of 2023 
