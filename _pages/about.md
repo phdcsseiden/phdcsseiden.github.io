@@ -87,11 +87,14 @@ ACM Member
 
 -ECOSOC YF Facilitator at the United Nations HQ in New York City, NY, United States
 
--Global Shapers Community - New York City Hub
+-Global Shapers, an Initiative of the World Economic Forum - New York City Hub
 
 -UNA-USA
 
--Former RCA (Rwanda Community Abroad) Tri-state area Youth Leader (New York, New Jersey & Connecticut)
+-RCA (Rwandan Community Abroad) Tri-State Area Youth Leader (New York, New Jersey & Connecticut) - Until, 2023.
+
+-Times Square Church Volunteer
+
 
 ## Charity
 
