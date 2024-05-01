@@ -88,7 +88,7 @@ English, French, Kinyarwanda
 
 He takes pleasure in podcasts, reading, and swimming. 
 
- ## U.S Security Clearance
+## U.S Security Clearance
 
 As of May 2023, granted & active
 
