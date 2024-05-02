@@ -88,8 +88,6 @@ ACM Member
 
 -African Union H.Q - Awarded Certificate of Appreciation
 
--Es'hailSat - Qatar Satellite Company - Recognition Award
-
 -Pace University - P. Scholarship
 
 -The Webby Awards Fellow
