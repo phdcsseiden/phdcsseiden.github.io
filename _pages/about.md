@@ -52,7 +52,7 @@ Cisco Certified
 
 DELF B2: Diplôme d'études en langue française (Diploma in French Language Studies), a degree of French-language abilities for non-native speakers of French administered by France Education International (France Éducation International or FEI) for France's Ministry of Education, among them.
 
-Yale University: Executive Education Diploma
+<b>Yale University:</b> Executive Education Diploma
 
 ## Past Projects
 
