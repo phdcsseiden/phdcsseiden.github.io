@@ -42,7 +42,7 @@ He has been part of different research studies at the Legatum Center & MIT Behav
 
 ## Languages
 
-English, French, Kinyarwanda
+English, French, Kinyarwanda and Hebrew
 
 ## I.T Certification
 
