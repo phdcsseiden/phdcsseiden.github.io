@@ -69,7 +69,7 @@ As of May 2023, granted & active
 
 ## Medical Clearance
 
-In Process
+Cleared
 
 ### Professional Membership 
 
@@ -115,7 +115,6 @@ Alain actively participates in a number of charitable projects that aid underpri
 ## Social Media
 
  N/A
-
 
 ## Life
 
