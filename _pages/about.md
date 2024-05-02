@@ -88,8 +88,6 @@ ACM Member
 
 -African Union H.Q - Awarded Certificate of Appreciation
 
--Pace University - P. Scholarship
-
 -The Webby Awards Fellow
 
 
