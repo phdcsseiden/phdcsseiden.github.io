@@ -31,11 +31,9 @@ He handles the entire product build-out, including software development on the c
 
 ## Education
 
--Seidenberg School Of CSIS - Pace University / Ph.D (Dropped Out for Duty)
+-Seidenberg School Of CSIS - Pace University (MS)/Ph.D (Dropped Out, Duty)
 
--Seidenberg School Of CSIS - Pace University (MS) 
-
--U.S Military Academy at West Point (BS)
+-U.S Military Academy at West Point 
 
 He has been part of different research studies at the Legatum Center & MIT Behavioral Research Lab (BRL) at Massachusetts Institute of Technology, Cambridge, Mass, United States.
 
