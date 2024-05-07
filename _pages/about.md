@@ -71,11 +71,11 @@ Cleared
 
 ### Professional Membership 
 
-National Society of Black Engineers
+-National Society of Black Engineers
 
-IEEE Member
+-IEEE Member
 
-ACM Member
+-ACM Member
 
 
 ## Awards and Honors
