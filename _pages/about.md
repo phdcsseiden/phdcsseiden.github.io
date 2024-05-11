@@ -106,14 +106,26 @@ Cleared
 
 Alain actively participates in a number of charitable projects that aid underprivileged children and adults in Africa, particularly in Rwanda-Africa.
 
-## Social Media
 
- N/A
+## Military Service
+
+<b> Allegiance: </b> United States
+
+<b> Years of service: </b> 21st century
+
+<b> Branch/service: </b>
+<ul>
+<li> United States Space Force </li>
+<li> United States Air Force </li>
+<li> United States Army </li>
+</ul>
+
+<b> Rank: Officer </b>
+
 
 ## Life
 
 He takes pleasure in podcasts, reading, and swimming. 
-
 
 ## Bio Current as of 2024
 
