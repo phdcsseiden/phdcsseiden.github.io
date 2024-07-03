@@ -127,7 +127,7 @@ Alain actively participates in a number of charitable projects that aid underpri
 
 He takes pleasure in podcasts, reading, and swimming. 
 
-## Bio Current as of 2024
+## (Current as of July 2024)
 
 
 
