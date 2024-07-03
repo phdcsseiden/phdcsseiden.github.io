@@ -99,7 +99,6 @@ Cleared
 
 -RCA (Rwandan Community Abroad) Tri-State Area Youth Leader (New York, New Jersey & Connecticut) - Until, 2023.
 
--Times Square Church Volunteer
 
 
 ## Charity
