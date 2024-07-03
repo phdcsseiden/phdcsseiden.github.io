@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain G. Shumbusho " 
+title: "Alain G. Shumbusho, MS " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
