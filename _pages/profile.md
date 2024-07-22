@@ -55,9 +55,6 @@ ACM Member
 
 -RCA Tri-state area youth leader (New York, New Jersey & Connecticut)
 
-## Charity
-
-Alain actively participates in a number of charitable projects that aid underprivileged children and adults in Africa, particularly in Rwanda-Africa.
 
 ## Social Media
 
@@ -67,9 +64,7 @@ Alain actively participates in a number of charitable projects that aid underpri
 
 He takes pleasure in podcasts, reading nonfiction, and swimming. 
 
-## Email
 
-AS40555P [at] pace [dot] edu  
 
 
 ## BIO CURRENT AS OF 2023
