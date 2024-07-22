@@ -40,7 +40,7 @@ He has been part of different research studies at the Legatum Center & MIT Behav
 
 ## Languages
 
-English, French, Kinyarwanda and Hebrew.
+English, French, Kinyarwanda, and Hebrew.
 
 ## I.T Certification
 
@@ -99,11 +99,6 @@ Cleared
 
 -RCA (Rwandan Community Abroad) Tri-State Area Youth Leader (New York, New Jersey & Connecticut) - Until, 2023.
 
-
-
-## Charity
-
-Alain actively participates in a number of charitable projects that aid underprivileged children and adults in Africa, particularly in Rwanda-Africa.
 
 
 ## Military Service
