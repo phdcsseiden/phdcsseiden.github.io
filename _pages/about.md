@@ -65,6 +65,12 @@ Resources................. Charlie Sierra <img src="https://www.wvbandcoms.com/c
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+<img src="https://static.timesofisrael.com/www/uploads/2017/05/000_OQ9G0-e1495463017894.jpg">
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <img src="https://d1i4t8bqe7zgj6.cloudfront.net/06-28-2018/t_1530193453152_name_1920_prince_william.jpg">
 
 
