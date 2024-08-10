@@ -53,7 +53,13 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Resources................. Charlie and Sierra <img src="https://www.wvbandcoms.com/cdn/shop/products/0000971_heavy-duty-speaker-mic-for-motorola-apx-7000-apx-7000xe-apx-6000-apx-6000xe-wb-wx-8000-m11.jpg?v=1605122207&width=600">
+Resources................. Charlie Sierra <img src="https://www.wvbandcoms.com/cdn/shop/products/0000971_heavy-duty-speaker-mic-for-motorola-apx-7000-apx-7000xe-apx-6000-apx-6000xe-wb-wx-8000-m11.jpg?v=1605122207&width=600">
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<img src="https://d1i4t8bqe7zgj6.cloudfront.net/06-28-2018/t_1530193453152_name_1920_prince_william.jpg">
 
 
 
