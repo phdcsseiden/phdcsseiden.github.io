@@ -47,5 +47,8 @@ Current project: <b> The Country - Continent Project </b> , among others.
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
---
+<img src="https://www.idf.il/media/bgdd01c1/yom-hazikaron-logo.jpeg?mode=crop&width=585&height=390">
+
+
+
 
