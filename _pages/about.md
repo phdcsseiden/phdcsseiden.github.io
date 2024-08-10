@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-Current project: <b> The Country - Continent Project </b> , among others.
+Current project: <b> The Country - Continent Project </b> , among others. Start Date: Summer 2023.
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
