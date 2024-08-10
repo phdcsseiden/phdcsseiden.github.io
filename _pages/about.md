@@ -50,5 +50,11 @@ Current project: <b> The Country - Continent Project </b> , among others.
 <img src="https://www.idf.il/media/bgdd01c1/yom-hazikaron-logo.jpeg?mode=crop&width=585&height=390">
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+Resources................. <img src="https://www.wvbandcoms.com/cdn/shop/products/0000971_heavy-duty-speaker-mic-for-motorola-apx-7000-apx-7000xe-apx-6000-apx-6000xe-wb-wx-8000-m11.jpg?v=1605122207&width=600">
+
+
 
 
