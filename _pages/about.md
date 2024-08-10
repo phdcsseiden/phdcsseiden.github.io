@@ -41,7 +41,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<img src="https://i.ebayimg.com/images/g/0WgAAOSwvGNloBO2/s-l1600.jpg">
+<img src="https://www.ebay.ca/itm/285137312233">
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
