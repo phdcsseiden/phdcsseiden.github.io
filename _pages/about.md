@@ -59,8 +59,19 @@ Resources................. Charlie Sierra <img src="https://www.wvbandcoms.com/c
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+<img src="https://i.guim.co.uk/img/static/sys-images/Guardian/Pix/pictures/2008/07/24/obama1.jpg?width=465&dpr=1&s=none">
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <img src="https://d1i4t8bqe7zgj6.cloudfront.net/06-28-2018/t_1530193453152_name_1920_prince_william.jpg">
 
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<img src="https://thekotel.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-28-at-18.48.42.jpeg">
 
 
 
