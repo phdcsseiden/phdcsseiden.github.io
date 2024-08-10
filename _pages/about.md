@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain on Duty " 
+title: "Alain on Duty. " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
