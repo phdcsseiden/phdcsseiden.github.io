@@ -17,6 +17,11 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye kugishira.
+
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
