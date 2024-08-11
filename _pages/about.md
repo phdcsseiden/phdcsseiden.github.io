@@ -15,7 +15,7 @@ redirect_from:
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
 
 
-## REVOLUTION
+## Revolution on the way.
 
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
