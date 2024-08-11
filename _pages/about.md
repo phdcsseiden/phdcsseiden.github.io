@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> The People's Page dedicated to Alain G. Shumbusho. | Anti Dictatorship and Terrorism Mission Against KAGAME PAUL. </b>
+<b> The People's Page dedicated to Alain G. Shumbusho. | Anti Dictatorship and Terrorism Mission Against "DICTATOR KAGAME PAUL". </b>
 
 
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
