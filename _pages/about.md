@@ -9,6 +9,9 @@ redirect_from:
 ---
 
 
+<b> The People's Page dedicated to Alain G. Shumbusho. </b>
+
+
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
 
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
