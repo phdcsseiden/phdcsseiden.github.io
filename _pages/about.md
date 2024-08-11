@@ -74,6 +74,9 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 <img src="https://www.jta.org/wp-content/uploads/2017/05/DSC_5771.jpg">
 
 
+<img src="https://media.wbur.org/wp/2017/05/0522_trump-western-wall-1000x649.jpg">
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
