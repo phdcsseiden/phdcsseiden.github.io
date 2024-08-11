@@ -77,6 +77,9 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 <img src="https://media.wbur.org/wp/2017/05/0522_trump-western-wall-1000x649.jpg">
 
 
+<img src="https://img.jakpost.net/c/2017/05/23/2017_05_23_27394_1495503243._large.jpg"> 
+
+
 <img src="https://img.jakpost.net/c/2017/05/23/2017_05_23_27394_1495503243._large.jpg">
 
 
@@ -90,6 +93,8 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 
 
 <img src="https://thekotel.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-28-at-18.48.42.jpeg">
+
+
 
 
 
