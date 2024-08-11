@@ -80,9 +80,6 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 <img src="https://img.jakpost.net/c/2017/05/23/2017_05_23_27394_1495503243._large.jpg"> 
 
 
-<img src="https://img.jakpost.net/c/2017/05/23/2017_05_23_27394_1495503243._large.jpg">
-
-
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
@@ -93,8 +90,6 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 
 
 <img src="https://thekotel.org/wp-content/uploads/2021/10/WhatsApp-Image-2021-10-28-at-18.48.42.jpeg">
-
-
 
 
 
