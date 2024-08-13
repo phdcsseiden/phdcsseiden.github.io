@@ -68,7 +68,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 
 
 
-<b> RASHID . OLD IBRAHIM. </b> I'm very proud of Hannah Szenes.
+<b> RASHID . OLD IBRAHIM. </b> I'm very proud of Hannah Senesh.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
