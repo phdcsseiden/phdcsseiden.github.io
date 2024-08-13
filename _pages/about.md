@@ -153,7 +153,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Without intelligence, one is vulnerable; without security,  one is defenseless. -Ancient military axiom </b>
 
 
-<b> The Kotel - JERUSALEM <s> TOP SECRET NOFORN </s>  FM 3–0 | Tikkun olam | "Tell Dictator Kagame Paul, Jalal," Ibrahim said. </b>
+<b> The Kotel - JERUSALEM <s> TOP SECRET NOFORN </s>  FM 3–0 | Tikkun olam | Tell Dictator Kagame Paul, Jalal, Ibrahim said. </b>
 
 
 <b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b>
