@@ -33,7 +33,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <span style="color:rgba(217,48,37,1.0"> <a href=" https://freedomhouse.org/report/transnational-repression/rwanda "> High-profile global targets </a> </span>
 
 
-## Revolution on the way. | Papa Charlie - <a href=" https://en.wikipedia.org/wiki/Idi_Amin "> Dictator Idi Amin </a> | <a href=" https://en.wikipedia.org/wiki/Entebbe_raid "> Entebbe raid </a> Vs <a href=" https://www.voanews.com/a/us-says-hotel-rwanda-hero-wrongfully-detained-/6581789.html "> Kigali Raid </a>
+## Revolution on the way. | Papa Charlie - <a href=" https://en.wikipedia.org/wiki/Idi_Amin "> Dictator Idi Amin </a> | <a href=" https://en.wikipedia.org/wiki/Entebbe_raid "> Entebbe raid </a> Vs <a href=" https://www.voanews.com/a/us-says-hotel-rwanda-hero-wrongfully-detained-/6581789.html "> Kigali Raid </a> | <a href=" https://www.voanews.com/a/rights-groups-condemn-rwandan-court-conviction-of-paul-rusesabagina/6241167.html "> Imam Kagame Paul can't be corrected. </a>
 
 
 <b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
