@@ -18,6 +18,21 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda#:~:text=Our%20research%20found%20that%20the,seeing%20their%20relatives%20in%20Rwanda  "> Transnational Repression by Rwanda and Dictator KAGAME Paul </a> </span>
 
 
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.jurist.org/news/2022/06/freedom-house-report-accuses-rwanda-of-transnational-repression/  "> Freedom House report accuses Rwanda of transnational repression </a> </span>
+
+
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://munkschool.utoronto.ca/news/new-citizen-lab-report-digital-transnational-repression  "> New Citizen Lab report: Digital Transnational Repression </a> </span>
+
+
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.state.gov/reports/2022-country-reports-on-human-rights-practices/rwanda/ "> 2022 Country Reports on Human Rights Practices: Rwanda </a> </span>
+
+
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.theguardian.com/world/2023/oct/10/rwanda-accused-of-broad-campaign-of-repression-against-dissidents "> Rwanda accused of broad campaign of repression against dissidents </a> </span>
+
+
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://freedomhouse.org/report/transnational-repression/rwanda "> High-profile global targets </a> </span>
+
+
 ## Revolution on the way.
 
 
@@ -68,7 +83,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 
 
 
-<b> RASHID . OLD IBRAHIM. </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Read 2. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Read 3. </a> </span>
+<b> RASHID . OLD IBRAHIM. </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Read 2. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Read 3. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href="  "> Read 4. </a> </span>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
