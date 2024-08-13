@@ -36,7 +36,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 ## Revolution on the way.
 
 
-<b>  By coincidence, this paper was discovered in a train station on the way from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
+<b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
 
 
 <b> RETEN Befreien Bergen; Victory. Gloryyyy </b>
