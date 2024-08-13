@@ -15,6 +15,9 @@ redirect_from:
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
 
 
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda#:~:text=Our%20research%20found%20that%20the,seeing%20their%20relatives%20in%20Rwanda  "> Transnational Repression by Rwanda and Dictator KAGAME Paul </a> </span
+
+
 ## Revolution on the way.
 
 
@@ -128,7 +131,7 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar Kayizar Yaaas Siiir | Gen Emmanuel Bayingana Yaaas Siiir | Gen Patrick Nyamvumba Yaaas Siiir | Gen Charles Kayonga Yaaas Siiir | Felix Namuhoranye | Juvenal Marizamunda | Yvonne Makolo 
 
 
-<b> Who is Dr. Gitwaza Paul </b>
+<b> Who is Dr. Gitwaza Paul? </b>
 
 
 <b> Quotes: </b>
