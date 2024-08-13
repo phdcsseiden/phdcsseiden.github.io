@@ -156,7 +156,10 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b>After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. </b>
 
 
-
+Since you are precious and honored in my sight,
+    and because I love you,
+I will give people in exchange for you,
+    nations in exchange for your life.
 
 
 <b> LET THEM RETURN TO YOU, BUT YOU MUST NOT RETURN TO THEM! NEVER NEVER. </b>
