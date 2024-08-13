@@ -43,7 +43,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 
  <b> Space is a warfighting domain. -Everett C. Dolman </b>
 
- <b> King David (King A.G.S) In the Quran and hadith, David is described as an Israelite king as well as a prophet of Allah. </b> Sheikh Kagame Paul, This is for you "Radical Imam Dictator Kagame Paul". 
+ <b> King David (King A.G.S) In the Quran and hadith, David is described as an Israelite king as well as a prophet of Allah. </b> <b> Sheikh </b> Kagame Paul, This is for you "Radical Imam Dictator Kagame Paul". 
 
  
 
