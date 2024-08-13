@@ -146,7 +146,7 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar Kayizar Yaaas Siiir | Gen Emmanuel Bayingana Yaaas Siiir | Gen Patrick Nyamvumba Yaaas Siiir | Gen Charles Kayonga Yaaas Siiir | Felix Namuhoranye | Juvenal Marizamunda | Yvonne Makolo | Teddy Ruyenzi
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Story ya December 2023 (Umwami Kabiri) na February 2024). Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda ba Columbia University), Mathilde you must face Serious Consequences of Transnational Repression?? </b> 
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Story ya December 2023 (Umwami Kabiri) na February 2024). Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda ba Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression?? </b> 
 
 
 <b> Quotes: </b>
