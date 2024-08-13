@@ -143,10 +143,10 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 <img src="https://lh3.googleusercontent.com/LaeyjG1lfoDsQj4ohnLU6yo-BggDwhXSlrn3oynkZmLnY9gjONWXmwV3pMW5D4aIM6EW7sXp7ZxAlTCnXu0qjmVvTKa48mBv0hnTvVO5VA=s720">
 
 
-Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar Kayizar Yaaas Siiir | Gen Emmanuel Bayingana Yaaas Siiir | Gen Patrick Nyamvumba Yaaas Siiir | Gen Charles Kayonga Yaaas Siiir | Felix Namuhoranye | Juvenal Marizamunda | Yvonne Makolo 
+Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar Kayizar Yaaas Siiir | Gen Emmanuel Bayingana Yaaas Siiir | Gen Patrick Nyamvumba Yaaas Siiir | Gen Charles Kayonga Yaaas Siiir | Felix Namuhoranye | Juvenal Marizamunda | Yvonne Makolo | Teddy Ruyenzi
 
 
-<b> Who is Dr. Gitwaza Paul? </b>
+<b> Who is Mr. Gitwaza Paul??? </b>
 
 
 <b> Quotes: </b>
