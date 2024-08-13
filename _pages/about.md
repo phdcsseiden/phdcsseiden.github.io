@@ -33,7 +33,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <span style="color:rgba(217,48,37,1.0"> <a href=" https://freedomhouse.org/report/transnational-repression/rwanda "> High-profile global targets </a> </span>
 
 
-## Revolution on the way.
+## Revolution on the way. | Papa Charlie 
 
 
 <b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
