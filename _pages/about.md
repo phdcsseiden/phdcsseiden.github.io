@@ -65,7 +65,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 
 
 
-<b> Tehilah . Hallel </b>
+<b> RASHID . OLD IBRAHIM. </b> I'm very proud of Hannah Szenes.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -131,7 +131,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Who is Dr. Gitwaza Paul </b>
 
 
-<b> Quotes </b>
+<b> Quotes: </b>
 
 
 
@@ -139,7 +139,6 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 
 
-<b> Jeremiah 15:19 </b>
 
 
 <b> LET THEM RETURN TO YOU, BUT YOU MUST NOT RETURN TO THEM! NEVER NEVER. </b>
