@@ -164,7 +164,8 @@ Since you are precious and honored in my sight,
 I will give people in exchange for you,
     nations in exchange for your life.
 
-
+<b> Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” </b>
+ 
 <b> LET THEM RETURN TO YOU, BUT YOU MUST NOT RETURN TO THEM! NEVER NEVER. </b>
 
 
