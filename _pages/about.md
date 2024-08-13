@@ -39,7 +39,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 <b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
 
 
-<b> RETEN Befreien Bergen; Victory. Gloryyyy </b>
+<b> RETEN Befreien Bergen; Victory. Gloryyyy </b> | We need Mossad in Saudi Arabia and Kigali - Rwanda.
 
  <b> Space is a warfighting domain. -Everett C. Dolman </b>
 
