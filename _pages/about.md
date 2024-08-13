@@ -128,23 +128,15 @@ Resources................. Charlie Sierra <img src="https://www.army-technology.
 Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar Kayizar Yaaas Siiir | Gen Emmanuel Bayingana Yaaas Siiir | Gen Patrick Nyamvumba Yaaas Siiir | Gen Charles Kayonga Yaaas Siiir | Felix Namuhoranye | Juvenal Marizamunda | Yvonne Makolo 
 
 
-<b> Dr. Gitwaza Paul </b>
+<b> Who is Dr. Gitwaza Paul </b>
 
 
-<b> Acts 13:22 </b>
+<b> Quotes </b>
 
 
-<b>After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do.</b> Palalala Lopa. Chukupa Zopa.
 
+<b>After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. </b>
 
-<b> Psalm 63:1-5 NIV </b>
-
-
-You, God, are my God, earnestly I seek you; I thirst for you, my whole being longs for you, in a dry and parched land where there is no water.
-
-I have seen you in the sanctuary and beheld your power and your glory. Because your love is better than life, my lips will glorify you.
-
-I will praise you as long as I live, and in your name, I will lift up my hands. I will be fully satisfied as with the richest of foods; with singing lips, my mouth will praise you.
 
 
 <b> Jeremiah 15:19 </b>
@@ -162,7 +154,7 @@ I will praise you as long as I live, and in your name, I will lift up my hands. 
 <b> Without intelligence, one is vulnerable; without security,  one is defenseless. -Ancient military axiom </b>
 
 
-<b> The Kotel - JERUSALEM <s> TOP SECRET NOFORN </s>  FM 3–0 | Tikkun olam | "Tell him, Jalal," Ibrahim said. </b>
+<b> The Kotel - JERUSALEM <s> TOP SECRET NOFORN </s>  FM 3–0 | Tikkun olam | "Tell Dictator Kagame Paul, Jalal," Ibrahim said. </b>
 
 
 <b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b>
