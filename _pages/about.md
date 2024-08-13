@@ -165,7 +165,7 @@ I will give people in exchange for you,
 <b> LET THEM RETURN TO YOU, BUT YOU MUST NOT RETURN TO THEM! NEVER NEVER. </b>
 
 
--------------------------------------------------------------------------------------------------------------------------------------
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 (Current as of 2024)
