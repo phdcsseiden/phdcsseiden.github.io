@@ -149,6 +149,9 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Who is Mr. Gitwaza Paul?? (Ugumane Story ya December 2023 (Umwami Kabiri) na February 2024). Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda ba Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression?? </b> 
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <b> Quotes: </b>
 
 
