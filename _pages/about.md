@@ -243,7 +243,7 @@ Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 <b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b>
 
 
-<b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b> <b> I Bless God I'm an American Jew. </b>
+<b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b> <b> | I Bless God I'm an American Jew. </b>
 
 
 <b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira.  
