@@ -9,9 +9,6 @@ redirect_from:
 ---
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
 <div class="mo-copyright">
             <div class="container" style="text-align:center;">
                 <p>
@@ -25,9 +22,6 @@ redirect_from:
 
 
 <b> The Kotel </b>
-
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b>
