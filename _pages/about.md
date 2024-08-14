@@ -203,7 +203,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b>
 
 
-<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Barabwiriza ntabwo barinda kubabwira. </b>
+<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira. </b>
 
 
 
