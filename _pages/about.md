@@ -157,13 +157,13 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://www.history.com/news/why-judas-betrayed-jesus "> Why Jesus Was Betrayed by Judas Iscariot? </a>
+<a href=" https://www.history.com/news/why-judas-betrayed-jesus "> Why King Jesus Was Betrayed by Apostle Judas Iscariot? </a> | We have one or more than one in Rwanda / Africa who is doing the same. Sometimes doing it among Diaspora Members.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire??
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa?
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
