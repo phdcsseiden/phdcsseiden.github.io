@@ -240,7 +240,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b>
 
 
-<b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b>
+<b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b> <b> I Bless God I'm an American Jew</b>
 
 
 <b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira. </b>
