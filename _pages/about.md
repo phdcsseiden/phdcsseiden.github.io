@@ -242,5 +242,10 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira. </b>
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>      
+
 
 
