@@ -18,6 +18,36 @@ redirect_from:
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+<b> Type: GitHub, Inc. a subsidiary of Microsoft Corporation, Redmond, WA, United States. </b>
+
+
+<b> Mission No: USLAS1234 </b>
+
+
+<b> Current Classification:  POT TERCES  </b>
+
+
+<b> Remarks: Flown </b>
+
+
+<b>Rashid.</b> <b>Old Ibrahim.</b> <b>Arik</b>.
+
+
+<b> Target: POT TERCES </b>
+
+
+<b> Operation Officer:  C Level Officer Alain G. Shumbusho </b>
+
+
+<b> Radar:  AN/MPQ-64 Sentinel and UEWR </b>
+
+
+<b> Results:  Hatzlachah </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 ## Operation Name: Surprise Neptune Kaspersky Spear Version Two.  A Success.
