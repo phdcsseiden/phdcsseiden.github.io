@@ -246,7 +246,7 @@ Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 <b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b> <b> I Bless God I'm an American Jew. </b>
 
 
-<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira.  | Star Boy </b>
+<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira.  
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
