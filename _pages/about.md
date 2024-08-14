@@ -9,21 +9,6 @@ redirect_from:
 ---
 
 
-<div class="mo-copyright">
-            <div class="container" style="text-align:center;">
-                <p>
-                  
-
-<img src="https://il.usembassy.gov/wp-content/themes/cms3/dist/images/us-flag-logo-footer.png" alt="American Flag" title="American Flag">
-
-<b> Duty </b>
-
-<img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
-
-
-<b> The Kotel </b>
-
-
 <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b>
 
 
@@ -34,6 +19,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
 
 <b> Type: GitHub, Inc. a subsidiary of Microsoft Corporation, Redmond, WA, United States. </b>
 
