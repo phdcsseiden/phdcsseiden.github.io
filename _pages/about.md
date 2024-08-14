@@ -18,7 +18,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 ## Operation Name: Surprise Neptune Kaspersky Spear Version Two.  A Success.
 
 
-<b> Intagondwa Y'umusiramu Icyihebe Kagame Paul, Tugiye Kumwohereza hao bamutegereje.</b>
+<b> Intagondwa Y'umusiramu Icyihebe Kagame Paul, Tugiye Kumwohereza aho  bamaze imyaka myinshi bamutegereje.</b>
 
 
 <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda#:~:text=Our%20research%20found%20that%20the,seeing%20their%20relatives%20in%20Rwanda  "> Transnational Repression by Rwanda and Dictator Radical Imam KAGAME Paul </a> </span>
