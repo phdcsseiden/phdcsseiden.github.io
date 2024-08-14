@@ -149,7 +149,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda ba Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression?? </b> 
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -159,17 +159,16 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 
 
-<b>After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. </b>
+-After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. 
 
 
-Since you are precious and honored in my sight,
-    and because I love you,
-I will give people in exchange for you,
-    nations in exchange for your life.
+-Since you are precious and honored in my sight, and because I love you, I will give people in exchange for you, nations in exchange for your life.
 
-<b> Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” </b>
+
+- Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” </b>
+
  
-<b> LET THEM RETURN TO YOU, BUT YOU MUST NOT RETURN TO THEM! NEVER NEVER. </b>
+- Let them return to you, but you must not return to them. Never Never. 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
