@@ -12,7 +12,7 @@ redirect_from:
 <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b>
 
 
-A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ibyo ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire.
+A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ibyo ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire. Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu igihumbi zo gukoraho Lucifer Twin ("Rwabujindiri Rwa Nyina").
 
 
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
@@ -250,6 +250,27 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 
 ## When dictatorship is a fact, revolution becomes a right. -Victor Hugo
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<div class="mo-copyright">
+            <div class="container" style="text-align:center;">
+                <p>
+                  
+
+<img src="https://il.usembassy.gov/wp-content/themes/cms3/dist/images/us-flag-logo-footer.png" alt="American Flag" title="American Flag">
+
+<b> Alain On Military Duty </b>
+
+<img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
+
+
+<b> The Kotel </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 
