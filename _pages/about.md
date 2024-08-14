@@ -225,7 +225,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Nk'umbuye Jeannette N Kubibero byange weee
+Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
