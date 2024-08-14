@@ -128,7 +128,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 
 
 
-<b> RASHID . OLD IBRAHIM. </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href="  "> Read 4. </a> </span> <b> Eli, Eli, lema sabachthani?. </b>
+<b> Eloi </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href="  "> Eli, Eli, lema sabachthani?. </a> </span> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
