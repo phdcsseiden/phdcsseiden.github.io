@@ -12,7 +12,7 @@ redirect_from:
 <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b>
 
 
-A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire (Mu gihe naba nguhaye umwanya). Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu igihumbi zo gukoraho Lucifer Twin ("Rwabujindiri Rwa Nyina").
+A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire (Mu gihe naba nguhaye umwanya). Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu igihumbi zo gukoraho rUsiFA tWIni  ("Rwabujindiri Rwa Nyina").
 
 
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
