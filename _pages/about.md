@@ -219,7 +219,10 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 - Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” 
 
  
-- Let them return to you, but you must not return to them. Never Never. 
+- Let them return to you, but you must not return to them. Never Never.
+
+
+-Nk'umbuye Jeannette Nyiramongi Kubibero byange weee
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
