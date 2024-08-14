@@ -12,6 +12,9 @@ redirect_from:
 <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b>
 
 
+<b> A Mixture of a Physchological and Physical Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. </b>
+
+
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
 
 
