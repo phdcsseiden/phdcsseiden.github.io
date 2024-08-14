@@ -255,7 +255,7 @@ Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>      
+<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telephathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> Lalala  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
 
 
 
