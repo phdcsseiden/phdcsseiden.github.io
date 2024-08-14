@@ -259,7 +259,7 @@ Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 
 
 
-## When dictatorship is a fact, revolution becomes a right. -Victor Hugo | <a href=" https://www.instagram.com/p/CiIJQ1VATIl/?img_index=1"> Rwanda in USA 1  </a>   |    <a href=" https://www.instagram.com/p/CiIJQ1VATIl/?img_index=2 "> Rwanda in USA 2  </a> 
+<b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b> | <a href=" https://www.instagram.com/p/CiIJQ1VATIl/?img_index=1"> Rwanda in USA 1  </a>   |    <a href=" https://www.instagram.com/p/CiIJQ1VATIl/?img_index=2 "> Rwanda in USA 2  </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
