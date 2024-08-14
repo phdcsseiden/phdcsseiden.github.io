@@ -249,3 +249,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 
 
+## When dictatorship is a fact, revolution becomes a right. -Victor Hugo
+
+
+
