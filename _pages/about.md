@@ -118,7 +118,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Who is Jules Ibingira??
+Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" https://igihe.com/diaspora/article/abanyarwanda-baba-muri-amerika-basabwe-kutarebera-abatoba-isura-y-u-rwanda "> Who is Terrorism Agent Eric Uwayezu Cyuma? </a> </span> FBI, CIA, Police N'izindi nzego bireba bakubaze ibyo mu Rwanda "bagukoresheje by'umwanda" ("Igisahiranda / Icyomanzi N'ibindi bizina bibi byose bihura nayo mvuze").
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
