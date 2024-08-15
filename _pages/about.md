@@ -247,8 +247,7 @@ Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-0
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jante  </a> Kubibero byange weee (Ngwino Umpe amazi yo kunywa), Abakwiriye Kubona Ibyiza tujye tubibaha. / Iyo Wafashe Umugore, Uba wafashe urugo erega (hahah lol).
-
+Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jante  </a> Kubibero byange weee (Ngwino Umpe amazi yo kunywa), Abakwiriye Kubona Ibyiza tujye tubibaha. 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
