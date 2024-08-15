@@ -131,7 +131,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 <b> Eloi </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/MATT+27.html "> Eli, Eli, lema sabachthani? </a> </span> 
 
 
-<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.linkedin.com/in/angella-mwiza-isimbi-5547b614a "> Who is Angella Isimbi?? </a> 
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a>  May Allah Take Her | Who is Nshuti Manasseh?? May Allah Take Him.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -197,13 +197,19 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://www.history.com/news/why-judas-betrayed-jesus "> Why King Jesus Was Betrayed by Apostle Judas Iscariot? </a> | We have one or more than one in Rwanda / Africa who is doing the same. Sometimes doing it among Diaspora Members.
+<a href=" https://www.history.com/news/why-judas-betrayed-jesus "> Why King Jesus Was Betrayed by Apostle Judas Iscariot? </a> | We have one or more  in Rwanda / Africa who is doing the same. Mostly doing it among Diaspora Members.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is NGABO DAVID FABIEN ("May Allah Take You" "Shhh")  </a>
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is NGABO DAVID FABIEN  </a> ("May Allah Take You" "Shhh").
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-03-05/hotel-rwanda-hero-was-tricked-onto-plane-into-arrest "> Bishop Constantin Niyomwungere.  </a> | <a href=" https://cfj.org/news/hotel-rwanda-proceedings-were-a-show-trial/ "> Bishop Constantin Niyomwungere 2.  </a> | <a href=" https://www.ktpress.rw/2021/03/rusesabagina-facilitated-his-own-arrest-prosecution-witness/ "> Bishop Constantin Niyomwungere 3. </a> | 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
