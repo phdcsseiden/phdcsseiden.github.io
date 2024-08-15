@@ -209,7 +209,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-03-05/hotel-rwanda-hero-was-tricked-onto-plane-into-arrest "> Bishop Constantin Niyomwungere.  </a> | <a href=" https://cfj.org/news/hotel-rwanda-proceedings-were-a-show-trial/ "> Bishop Constantin Niyomwungere 2.  </a> | <a href=" https://www.ktpress.rw/2021/03/rusesabagina-facilitated-his-own-arrest-prosecution-witness/ "> Bishop Constantin Niyomwungere 3. </a> | 
+Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-03-05/hotel-rwanda-hero-was-tricked-onto-plane-into-arrest "> Bishop Constantin Niyomwungere.  </a> | <a href=" https://cfj.org/news/hotel-rwanda-proceedings-were-a-show-trial/ "> Bishop Constantin Niyomwungere 2.  </a> | <a href=" https://www.ktpress.rw/2021/03/rusesabagina-facilitated-his-own-arrest-prosecution-witness/ "> Bishop Constantin Niyomwungere 3. </a> | <b> Ndashaka Kuzabakubitira umuntu witwa Gitwaza Paul Induru zikavuga. Just wait at the right time. (Ntuhagarara hamwe, Ngo ufate uruhande urugumeho.) </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
