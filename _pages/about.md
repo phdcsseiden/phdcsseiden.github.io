@@ -87,7 +87,7 @@ Zero Niner. <b>Radar Contact</b>. Charlie!
 <b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
 
 
-<b> RETEN Befreien Bergen; Victory. Gloryyyy </b> | We need Mossad in Saudi Arabia and Kigali - Rwanda.
+<b> RETEN Befreien Bergen; Victory. Gloryyyy </b> | We need <b> Mossad </b> in Saudi Arabia and Kigali - Rwanda.
 
  <b> Space is a warfighting domain. -Everett C. Dolman </b>
 
