@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain on Duty. Uniform Hotel. " 
+title: "Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
