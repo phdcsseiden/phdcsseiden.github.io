@@ -296,7 +296,7 @@ Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jante  </a> Ku
 <img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
 
 
-<b> The Kotel </b>
+<b> Tehilah </b>
 
 
 
