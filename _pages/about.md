@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain on Duty. " 
+title: "Alain on Duty. Uniform Hotel. " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
