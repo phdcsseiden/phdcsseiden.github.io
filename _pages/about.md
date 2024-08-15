@@ -118,8 +118,10 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+Who is Jules Ibingira??
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/2/25/Seal_of_the_Central_Intelligence_Agency.svg/200px-Seal_of_the_Central_Intelligence_Agency.svg.png" alt="CIA Seal" title="CIA Seal">
 
