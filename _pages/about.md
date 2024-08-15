@@ -51,7 +51,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 Zero Niner. <b>Radar Contact</b>. Charlie!
 
 
-<b> Ending divide et impera, of Small Dictator Kagame Paul. </b>
+<b> Ending "divide et impera", of Small Dictator Kagame Paul. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
