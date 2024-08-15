@@ -149,7 +149,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Resources................. Charlie Sierra <img src="https://www.army-technology.com/wp-content/uploads/sites/3/2020/12/PRC-4090-Control-Handset-with-webbing.jpg">
+Resources.......... Charlie Sierra <img src="https://www.army-technology.com/wp-content/uploads/sites/3/2020/12/PRC-4090-Control-Handset-with-webbing.jpg">
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -203,7 +203,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa?
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is NGABO DAVID FABIEN ("May Allah Take You" "Shhh")  </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -228,7 +228,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
+Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jeannette N  </a> Kubibero byange weee (Ngwino Umpe amazi yo kunywa), Abakwiriye Kubona Ibyiza tujye tubibaha.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -249,13 +249,13 @@ Nk'umbuye Jeannette N Kubibero byange weee (Ngwino Umpe amazi yo kunywa).
 <b> Thank You. God bless you. May God Bless the United States of America, Israel, and Rwanda - Africa. </b> <b> | I Bless God I'm an American Jew. </b>
 
 
-<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One. Uwatoranijwe. </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira.  
+<b> Paper of 2024 Under Dev. </b> | <b> The Chosen One (Uwatoranijwe). </b> | <b> Umwami Baramutura. Baribwiriza ntabwo barinda kubabwira.  
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telephathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> Lalala  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
+<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> Lalala  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
 
 
 
