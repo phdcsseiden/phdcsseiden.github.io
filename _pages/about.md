@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain on Duty. Uniform Hotel. Zoprate. KADOSH. Labanda. Takka Takka Bom Bom. " 
+title: "Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. Takka Takka Bom Bom. " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
