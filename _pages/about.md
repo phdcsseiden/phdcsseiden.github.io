@@ -105,7 +105,7 @@ Zero Niner. <b>Radar Contact</b>. Charlie!
 Ibyananiye abandi ni <b> C Level Officer Alain Shumbusho </b> Ubishobora.
 
 
-When you are a C Level Officer, Technicians do the work for you and you take credits. - X Officer
+Buriya kuba umuyobozi, n'ikintu cyoroshye cyane. Byose barabigukorera, Ukabyitirirwa.  - Gen. James Kabarebe
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
