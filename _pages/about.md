@@ -174,7 +174,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Aho abagabo barwaniye, Imbwa na Makayabu zirahagendera koko.
+<b> Aho abagabo barwaniye, Imbwa na Makayabu zirahagendera.
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
