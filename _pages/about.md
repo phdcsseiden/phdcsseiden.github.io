@@ -51,7 +51,7 @@ Current project: <b> The Country - Continent Project </b> , among others. <b> St
 Zero Niner. <b>Radar Contact</b>. Charlie!
 
 
-<b> Ending <a href=" https://dictionary.cambridge.org/us/dictionary/english/divide-and-rule  "> "divide et impera" </a>, of Small Dictator Kagame Paul. </b> | <a href=" https://www.merriam-webster.com/dictionary/divide%20and%20conquer "> Also Read </a> 
+<b> Ending <a href=" https://dictionary.cambridge.org/us/dictionary/english/divide-and-rule  "> "divide et impera" </a>, of Small Dictator Kagame Paul. </b> | <a href=" https://www.merriam-webster.com/dictionary/divide%20and%20conquer "> Also Read </a> | Rwandan Patriotic Front (<s>Ubumwe</s>, <s>Amajyambere</s>, <s>Demokarasi</s> (Ikinyoma Gusa Gusa)).
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -273,7 +273,7 @@ Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jante  </a> Ku
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> Lalala  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
+<b> STAR       OF          DAVID         <b>☆ </b> |         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
 
 
 
