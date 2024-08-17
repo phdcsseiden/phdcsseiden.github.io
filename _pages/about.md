@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: "Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. Takka Takka Bom Bom. " 
+title: " <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b> ("Defamation Frog")./ " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b> ("Defamation Frog").
+<b> Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. Takka Takka Bom Bom. </b> 
 
 
 A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire (Mu gihe naba nguhaye umwanya). Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu igihumbi zo gukoraho rUsiFA tWIni  ("Rwabujindiri Rwa Nyina").
