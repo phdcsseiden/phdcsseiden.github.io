@@ -238,7 +238,7 @@ Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-0
 -Since you are precious and honored in my sight, and because I love you, I will give people in exchange for you, nations in exchange for your life.
 
 
-- Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://www.collinsdictionary.com/us/dictionary/english/cheat-sheet "> Cheat Sheet </a> )
+- Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> )
 
  
 - Let them return to you, but you must not return to them. Never Never.
