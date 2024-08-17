@@ -12,7 +12,10 @@ redirect_from:
 <b> Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. Takka Takka Bom Bom. </b> 
 
 
-A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire (Mu gihe naba nguhaye umwanya). Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu igihumbi zo gukoraho rUsiFA tWIni  ("Rwabujindiri Rwa Nyina").
+<b> Archived Content </b>
+
+
+A Mixture of a <b>Physchological and Physical</b> Operation, to overthrow a Terrorist and Dictator Kagame Paul and all his Agents on the U.S Soil. Step by step. Slow by Slow. Ibyo nkora, ndimo ndabizi. Niba udasobanukiwe, ngwino unganirize nk'usobanurire (Mu gihe naba nguhaye umwanya). Narimo Mbereka, mbategura no mu mutwe, impanvu Ndwanirira! <b> Mfite Impanvu Zirenze igihumbi zo gukoraho Impanga ya Shitani Kagame Paul  ("Rwabujindiri Rwa Nyina").
 
 
 Current project: <b> The Country - Continent Project </b> , among others. <b> Start Date: Summer 2023. </b>
