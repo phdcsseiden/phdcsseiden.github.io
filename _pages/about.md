@@ -93,7 +93,7 @@ Therefore,
 <b> Alain G. Shumbusho Quote</b>
 
 
-It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise leadership style on the African Continent, where millions of people are put in danger due to the orders of a single individual <span style="color:rgba(217,48,37,1.0"> KAGAME PAUL (you bastard) </span>; this has to stop. We are free to free others. Let's do it, Folks.
+It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise leadership style on the African Continent, where millions of people are put in danger due to the orders of a single individual  KAGAME PAUL (Impanga ya Shitani) ; this has to stop. We are free to free others. Let's do it, Folks.
 
 
 --
@@ -141,7 +141,7 @@ It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise lead
 Ibyananiye abandi ni <b> C Level Officer Alain Shumbusho </b> Ubishobora.
 
 
-Buriya kuba umuyobozi, n'ikintu cyoroshye cyane. Byose barabigukorera, Ukabyitirirwa.  - Gen. James Kabarebe
+Buriya kuba umuyobozi, n'ikintu cyoroshye cyane. Byose barabigukorera, Ukabyitirirwa.  - C Level Officer Kabarebe
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -160,7 +160,7 @@ Nta Musirikare Usubira Inyuma. Ikihebe Kagame Paul, Kiri kwerekeza aho dukwiye k
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" https://igihe.com/diaspora/article/abanyarwanda-baba-muri-amerika-basabwe-kutarebera-abatoba-isura-y-u-rwanda "> Who is Terrorism Agent Eric Uwayezu Cyuma? </a> </span> FBI, CIA, Police N'izindi nzego bireba bakubaze ibyo mu Rwanda "bagukoresheje by'umwanda" ("Igisahiranda / Icyomanzi N'ibindi bizina bibi byose bihura nayo mvuze, Ibyatambutse - Ibiriho - N'ibizaza.").
+Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" https://igihe.com/diaspora/article/abanyarwanda-baba-muri-amerika-basabwe-kutarebera-abatoba-isura-y-u-rwanda "> Who is Terrorism Agent Eric Uwayezu Cyuma? </a> </span> FBI, CIA, Police N'izindi nzego bireba bakubaze ibyo mu Rwanda "bagukoresheje by'umwanda" ("Igisahiranda, Icyomanzi N'ibindi bizina bibi byose bihura nayo mvuze, Ibyatambutse - Ibiriho - N'ibizaza.").
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -180,7 +180,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <b> Eloi </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/MATT+27.html "> Eli, Eli, lema sabachthani? </a> </span> 
 
 
-<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza. Shaka akandi kazi.")  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Amasarigoma Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza. Shaka akandi kazi.")  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -267,23 +267,22 @@ Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-0
 <b> Quotes: </b>
 
 
-
 -After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. 
 
 
 -Since you are precious and honored in my sight, and because I love you, I will give people in exchange for you, nations in exchange for your life.
 
 
-- Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> )
+-Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> )
 
  
-- Let them return to you, but you must not return to them. Never Never.
+-Let them return to you, but you must not return to them. Never Never.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jante  </a> Kubibero byange weee (Ngwino Umpe amazi yo kunywa), Abakwiriye Kubona Ibyiza tujye tubibaha. Niba utabizi, wa mugore we, Uri indatwa mu bagore.Uko Usa Ntibigereranwa, Nta wakuruta muri iyi Si Nzima. Nk'umbuye kukubona uko usa tukizihirwa. Mu misaya yawe ni heza cyane hasa nk'ifeza itunganijwe y'igiciro cyinshi. 
+Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jeannette  </a> Kubibero byange weee (Ngwino Umpe amazi yo kunywa), Abakwiriye Kubona Ibyiza tujye tubibaha. Niba utabizi, wa mugore we, Uri indatwa mu bagore.Uko Usa Ntibigereranwa, Nta wakuruta muri iyi Si Nzima. Nk'umbuye kukubona uko usa tukizihirwa. Mu misaya yawe ni heza cyane hasa nk'ifeza itunganijwe y'igiciro cyinshi. 
 
 
 
