@@ -267,6 +267,12 @@ Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-0
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+Beat Gitwaza Muhirwa Paul / Another Version of Costatin Niyomwungeri.
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <b> Quotes: </b>
 
 
