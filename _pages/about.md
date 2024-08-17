@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> Archived & New Content </b>
+<b> Archived & New Content </b> | <a href=" https://www.merriam-webster.com/dictionary/divide%20and%20conquer "> Also Read </a> 
 
 
 <b> Alain on Duty. Uniform Hotel. Zoprate. Kadosh. Labanda. Takka Takka Bom Bom. </b>
