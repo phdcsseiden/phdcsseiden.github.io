@@ -63,6 +63,42 @@ Zero Niner. <b>Radar Contact</b>. Charlie!
 <b> Intagondwa Y'umusiramu Icyihebe Kagame Paul, Tugiye Kucyohereza aho bamaze imyaka myinshi Bagitegreje. ICC. </b> <b> Kagame uri icyo ntazi. </b>
 
 
+
+
+United States Action on transnational repression – Federal Bureau of Investigation <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression  "> (FBI) </a>
+
+
+Political Repression by a foreign government to <a href=" https://freedomhouse.org/report/transnational-repression/united-states ">  individuals living in the United States </a>
+
+
+<a href="https://www.whitehouse.gov/about-the-white-house/our-government/the-constitution/#:~:text=The%20First%20Amendment%20provides%20that,the%20right%20to%20bear%20arms.">The First Amendment </a> provides that Congress make no law respecting an establishment of religion or prohibiting its free exercise. It protects freedom of speech, the press, assembly, and the right to petition the Government to redress grievances.
+
+
+<b> One </b> of the many consequences Dictator Kagame should face:
+
+
+<a href=" https://www.govinfo.gov/content/pkg/BILLS-118hr5855ih/html/BILLS-118hr5855ih.htm"> Khashoggi Ban, </a>  a new visa restriction policy pursuant to section 212(a)(3)(C) of the Immigration and Nationality Act.
+
+
+<a href=" https://www.congress.gov/bill/118th-congress/house-bill/5855/text/ih?overview=closed&format=txt"> H.R.5855 </a> - Protection of Activists 2023
+
+
+<a href=" https://www.state.gov/accountability-for-the-murder-of-jamal-khashoggi/ "> Governments </a> that reach beyond their borders  
+
+
+
+Therefore,
+
+
+<b> Alain G. Shumbusho Quote</b>
+
+
+It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise leadership style on the African Continent, where millions of people are put in danger due to the orders of a single individual <span style="color:rgba(217,48,37,1.0"> KAGAME PAUL (you bastard) </span>; this has to stop. We are free to free others. Let's do it, Folks.
+
+
+--
+
+
 <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda#:~:text=Our%20research%20found%20that%20the,seeing%20their%20relatives%20in%20Rwanda  "> Transnational Repression by Rwanda and Dictator Radical Imam KAGAME Paul </a> </span>
 
 
