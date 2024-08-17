@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " <b> The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul". </b> ("Defamation Frog")./ " 
+title: " The People's Page dedicated to Alain G. Shumbusho. | Counterterrorism | Anti Dictatorship Against "Dictator Radical Imam Kagame Paul".  (Defamation Frog)./ " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
