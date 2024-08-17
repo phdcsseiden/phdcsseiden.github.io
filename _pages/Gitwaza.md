@@ -40,7 +40,7 @@ Kuvanaho Ikihebe Kagame Paul, ntawe utabishaka. Ariko ikibazo cyawe iyo Mission 
 Ikindi nawe ujye wemera amakuru y'umwimerere wakuye kwa Nyirayo otherwise nawe ntaho uba utaniye n'ikihebe Kagame Paul.
 
 
-Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'umugisha, Imvura y'umugisha? Warambabaje cyaneee.
+Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'umugisha, Imvura y'umugisha? Warambabaje cyaneee. Warantegushye kugeza uyu munsi. Ushyira ibintu k'umbuga nkoranyambaga zawe, hanyuma ukabikuraho ukanahindura content. Niba aba rai ukuri kuki Ubikuraho?? Kuki Ubihindura?
 
 
 <b> To name a few. </b>
