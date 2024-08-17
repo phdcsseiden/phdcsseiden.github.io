@@ -37,6 +37,9 @@ Revolution ntabwo yakorwa n'abantu bafite imitekerereze yo kwirebaho, no kureba 
 Kuvanaho Ikihebe Kagame Paul, ntawe utabishaka. Ariko ikibazo cyawe iyo Mission itaraba accomplished neza bikiri mu nzira za Lobbying n'ibindi, Ukwiriye guhaguruka ugafata iyambere ("Ukiheraho") Ugatanga icyo ufite ("Tubyita <b>Kw'igira</b> mu kinyarwanda") Ugashyigikira Opposition Urimo. Atari amagambo gusa, ahubwo <b>n'ibifatika</b>. Narakugaye cyane kuriyo ngingo!!
 
 
+Ikindi nawe ujye wemera amakuru y'umwimerere wakuye kwa Nyirayo otherwise nawe ntaho uba utaniye n'ikihebe Kagame Paul.
+
+
 <b> To name a few. </b>
 
 
