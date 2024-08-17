@@ -267,7 +267,7 @@ Mr. Gitwaza Paul ≠ <a href=" https://www.latimes.com/world-nation/story/2021-0
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Beat Gitwaza Muhirwa Paul / Another Version of Costatin Niyomwungeri.
+Bishop Costatin Niyomwungeri Ninde?? <a href=" https://phdcsseiden.github.io/Gitwaza/"> Beat Gitwaza Muhirwa Paul  </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
