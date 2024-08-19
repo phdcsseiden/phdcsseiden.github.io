@@ -21,8 +21,10 @@ Beat Nazis <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Hard  </a> .
  <hr style="height:2px;border-width:0;color:gray;background-color:gray">
  
 
-Other Updates <a href=" https://phdcsseiden.github.io/News/ "> Read   </a>  | Needs <a href=" https://phdcsseiden.github.io/Needs/ "> Read   </a> 
+-Other Updates <a href=" https://phdcsseiden.github.io/News/ "> Read   </a>  
 
+
+-Needs <a href=" https://phdcsseiden.github.io/Needs/ "> Read   </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
