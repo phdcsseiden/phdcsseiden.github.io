@@ -15,7 +15,7 @@ modified: 2024-07-01
 -Where is Alain Resources Now? <b> 2 Account Signatories Disappeared a few years ago. </b> Many believe Terrorist Kagame Paul killed them.
 
 
-How Much? At least a Minimum of $100 million with a <b>credible source</b>, <b>for Service</b>. <b>From there we will figure it out.</b>
+-How Much? More than  $100 million.
 
 
 Please Read Below:
