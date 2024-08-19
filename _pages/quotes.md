@@ -49,13 +49,13 @@ Teamwork makes the dream work
 Space is a warfighting domain. 
 
 
-<b> -Ancient military axiom </b>
+<b> Ancient military axiom </b>
 
 
 Without intelligence, one is vulnerable; without security,  one is defenseless.  
 
 
-<b> -General George S. Patton </b>
+<b> General George S. Patton </b>
 
 
 The fog of war works both ways. The enemy is as much in the dark as you are. Be Bold! 
