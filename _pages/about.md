@@ -9,8 +9,13 @@ redirect_from:
 ---
 
 
-<b> Archived & New Content </b> | <a href=" https://phdcsseiden.github.io/Tr/ "> Transnational Repression </a> 
+<b> Archived & New Content </b> 
 
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<a href=" https://phdcsseiden.github.io/Tr/ "> Transnational Repression </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
