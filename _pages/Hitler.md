@@ -9,7 +9,7 @@ modified: 2023-08-23
 
 
 
-Beat Nazis Adolf Hitler <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Beat Nazis  </a> .
+Beat Nazis <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Hard  </a> .
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
