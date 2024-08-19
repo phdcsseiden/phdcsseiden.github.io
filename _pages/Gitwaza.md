@@ -67,7 +67,7 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Dictator Kagame Paul yatumye nkora Mva Mw'Ishuli Kubera "Ubuyobozi bubi". </b>
+<b> Dictator Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". </b>
 
 
 
