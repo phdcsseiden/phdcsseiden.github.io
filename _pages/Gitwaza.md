@@ -52,8 +52,10 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <b> Twibukiranye Umugani: </b>   Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. Umubyeyi Acumura Yicaye. Nta Mubyeyi Uvuma Umwana y'abyaye, iyo abikoze aba ari umubyeyi Gito. Umugani w'Umwana w'ikirara. Ntawe Uvuma Uwo Imana Itavumye ("Abanyamugisha B'Imana - Balamu"). M'uyindi myinshi. 
 
 
-
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
+
+
+Meanwhile  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada Live".
 
 
 <b> To name a few. </b>
