@@ -21,19 +21,13 @@ redirect_from:
 <a href=" https://phdcsseiden.github.io/Tr/ "> Transnational Repression </a>
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
 
 Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Dictator Adolf Hitler  </a> 
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
 
 <a href=" https://phdcsseiden.github.io/quotes/ "> Quotes  </a> 
 
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 <a href=" https://phdcsseiden.github.io/Wacu/ "> Maman Wacu Soma  </a> 
