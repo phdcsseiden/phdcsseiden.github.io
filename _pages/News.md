@@ -62,14 +62,6 @@ To name a few.
 
 
 
-  <hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-TAGS:  
-
-
-<a href=" https://alainshumbusho.github.io/Tags1/"> Tags 1  </a>, <a href=" https://alainshumbusho.github.io/Tags2/"> Tags 2 </a>, <a href=" https://alainshumbusho.github.io/Tags3/"> Tags 3 </a>, <a href="  https://alainshumbusho.github.io/"> Home </a>, <a href="  https://alainshumbusho.github.io/News"> News</a>, <a href="  https://alainshumbusho.github.io/Needs/"> Needs</a>, <a href=" https://alainshumbusho.github.io/References/"> References</a>, <a href=" https://alainshumbusho.github.io/Events/"> Some Events</a>, <a href=" https://alainshumbusho.github.io/Please/"> Please Note</a>.
-
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
