@@ -7,7 +7,7 @@ modified: 2024-08-16
 
 
 
-<b> Igisigo </b>
+<b> Igisigo Cy'Uurukundo </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
