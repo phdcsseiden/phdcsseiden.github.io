@@ -19,9 +19,6 @@ modified: 2024-07-07
 -We wish you well.
 
 
--We have the following offers for you KBM, KJH, NMV, are you interested in any?
-
-
 -Flourish.
 
 
