@@ -13,6 +13,15 @@ redirect_from:
 
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<a href=" https://phdcsseiden.github.io/Totalitarianism/ "> Totalitarianism </a> 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <a href=" https://phdcsseiden.github.io/Wacu/ "> Mamawacu Soma  </a> 
 
 
