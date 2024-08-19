@@ -24,7 +24,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Beat Nazis Adolf Hitler <a href=" https://phdcsseiden.github.io/Hitler/ "> Beat Nazis  </a> .
+Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Adolf Hitler  </a> .
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
