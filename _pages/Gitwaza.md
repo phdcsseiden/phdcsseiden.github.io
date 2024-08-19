@@ -55,13 +55,22 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
+<b> To name a few. </b>
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Meanwhile:  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada" "N'Akandi kamwe ntavuze".
+Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada" "N'Akandi kamwe ntavuze".
 
 
-<b> To name a few. </b>
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<b> Dictator Kagame Paul yatumye nkora Mva Mw'Ishuli Kubera "Ubuyobozi bubi". </b>
+
+
+
 
 
 
