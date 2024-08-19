@@ -274,7 +274,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 -Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> ) ~Isaiah 30:21
 
  
--Let them return to you, but you must not return to them. Never Never.
+-Let them return to you, but you must not return to them. Never Never. 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -287,7 +287,7 @@ Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jeannette  </a
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-(Current as of 2024) | <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> non fiction. </a>
+(Current as of 2024) | <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Science Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Science Non fiction. </a>
 
 
 <b> Without intelligence, one is vulnerable; without security,  one is defenseless. -Ancient military axiom </b>
