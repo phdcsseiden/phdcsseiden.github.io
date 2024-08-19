@@ -22,7 +22,7 @@ redirect_from:
 
 
 
-- Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Dictator Adolf Hitler  </a> 
+Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf Hitler  </a> 
 
 
 
