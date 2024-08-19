@@ -55,7 +55,10 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
-Meanwhile  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada Live".
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+Meanwhile:  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada".
 
 
 <b> To name a few. </b>
