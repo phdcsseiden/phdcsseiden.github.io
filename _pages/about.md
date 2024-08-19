@@ -201,7 +201,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Resources.......... Charlie Sierra <img src="https://www.army-technology.com/wp-content/uploads/sites/3/2020/12/PRC-4090-Control-Handset-with-webbing.jpg">
+Resources. Charlie Sierra <img src="https://www.army-technology.com/wp-content/uploads/sites/3/2020/12/PRC-4090-Control-Handset-with-webbing.jpg">
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -256,7 +256,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Gitwaza/"> Beat Gitwaza Muhirwa Paul  </a>
+<a href=" https://phdcsseiden.github.io/Gitwaza/"> Beat Gitwaza Paul  </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
