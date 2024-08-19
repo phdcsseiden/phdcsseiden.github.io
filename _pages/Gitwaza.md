@@ -58,7 +58,7 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Meanwhile:  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada".
+Meanwhile:  Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya no gukorana nawe, ntako bisa </b>. "Toronto - Canada" "N'Akandi kamwe ntavuze".
 
 
 <b> To name a few. </b>
