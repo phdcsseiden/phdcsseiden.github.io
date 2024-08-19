@@ -256,8 +256,8 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
- 
-- Kubita Gahoro Gitwaza Paul <a href=" https://phdcsseiden.github.io/Gitwaza/ "> Read </a> 
+
+<a href=" https://phdcsseiden.github.io/Gitwaza/ "> Kubita Gahoro Gitwaza Paul </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
