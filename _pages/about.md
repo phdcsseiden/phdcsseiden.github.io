@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  Igikeri Gisebanya.  </b>
+<b> Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  Igikeri Gisebanya. Cyica "Ibigwi By'Abantu".  </b>
 
 
 <b> Archived & New Content. </b> 
