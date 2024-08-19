@@ -15,7 +15,7 @@ modified: 2024-08-17
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is NGABO DAVID FABIEN  </a> ("May Allah Take You" "Shhh") among others..
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is Ngabo David Fabien  </a> ("May Allah Take You" "Shhh") among others..
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -34,7 +34,7 @@ Wowe uraba muri opposition ntushyigikire urugamba n'ibifatika? ("Resources"). Tw
 Revolution ntabwo yakorwa n'abantu bafite imitekerereze yo kwirebaho, no kureba inyungu zabo gusa. Ntabwo ukoresha influence ufite ngo impinduka zaririmbwe, z'ikigishwa muri Africa Haguruka mu myaka ishize, z'ibe ibifatika bive mu magambo gusa. Ikindi ntabwo wemerewe gutanga amakuru ayariyo yose ya coup d'état y'umuntu atabiguhereye Uruhushya rweruye. Ikindi Obama ntabwo ashobora gutangaza amakuru y'ibanga y'igisirikare ngo abibwire umu Civilian uwo ariwe wese hanyuma uwo mu Civilian abibwire abandi. Ni Classified Information. 
 
 
-Kuvanaho Ikihebe Kagame Paul, ntawe utabishaka. Ariko ikibazo cyawe iyo Mission itaraba accomplished neza bikiri mu nzira za Lobbying n'ibindi, Ukwiriye guhaguruka ugafata iyambere ("Ukiheraho") Ugatanga icyo ufite ("Tubyita <b>Kw'igira</b> mu kinyarwanda") Ugashyigikira Opposition Urimo. Atari amagambo gusa, ahubwo <b>n'ibifatika</b>. Narakugaye cyane kuriyo ngingo!!
+Kuvanaho Ikihebe Kagame Paul, ntawe utabishaka. Ariko ikibazo cyawe iyo Mission itaraba accomplished neza bikiri mu nzira za Lobbying n'ibindi, Ukwiriye guhaguruka ugafata iyambere ("Ukiheraho") Ugatanga icyo ufite ("Tubyita <b>Kw'igira</b> mu kinyarwanda") Ugashyigikira Opposition Urimo. Atari amagambo gusa, ahubwo <b>n'ibifatika</b>. Narakugaye cyane kuriyo ngingo!
 
 
 Ikindi nawe ujye wemera amakuru y'umwimerere wakuye kwa Nyirayo otherwise nawe ntaho uba utaniye n'ikihebe Kagame Paul.
