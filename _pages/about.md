@@ -174,7 +174,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Aho abagabo barwaniye, Imbwa na Makayabu zirahagendera.
+<b> Aho abagabo barwaniye, Imbwa na Makayabu birahagendera.
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
@@ -183,7 +183,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <b> Eloi </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/MATT+27.html "> Eli, Eli, lema sabachthani? </a> </span> 
 
 
-<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Amasarigoma Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza. Shaka akandi kazi.")  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Amasarigoma N'Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza. Shaka akandi kazi.")  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -255,8 +255,8 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
-
-<a href=" https://phdcsseiden.github.io/Gitwaza/"> Beat Gitwaza Paul  </a> 
+ 
+- Beat Gitwaza Paul <a href=" https://phdcsseiden.github.io/Gitwaza/ "> Read </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -265,13 +265,13 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <b> Quotes: </b>
 
 
--After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. 
+-After removing Saul, he made David their king. God testified concerning him: I have found David son of Jesse, a man after my own heart; he will do everything I want him to do. ~Acts 13:22
 
 
--Since you are precious and honored in my sight, and because I love you, I will give people in exchange for you, nations in exchange for your life.
+-Since you are precious and honored in my sight, and because I love you, I will give people in exchange for you, nations in exchange for your life. ~Isaiah 43:4
 
 
--Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> )
+-Whether you turn to the right or to the left, your ears will hear a voice behind you, saying, “This is the way; walk in it.” (<a href=" https://en.wikipedia.org/wiki/Global_Positioning_System "> GPS or Cheat Sheet </a> ) ~Isaiah 30:21
 
  
 -Let them return to you, but you must not return to them. Never Never.
@@ -287,7 +287,7 @@ Nk'umbuye <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Jeannette  </a
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-(Current as of 2024) | Fiction or non fiction.
+(Current as of 2024) | <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> non fiction. </a>
 
 
 <b> Without intelligence, one is vulnerable; without security,  one is defenseless. -Ancient military axiom </b>
