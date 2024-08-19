@@ -18,16 +18,13 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Beat Nazis Adolf Hitler <a href=" https://phdcsseiden.github.io/Hitler/ "> Beat Nazis  </a> .
-
-
 <a href=" https://phdcsseiden.github.io/Tr/ "> Transnational Repression </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-
+Beat Nazis Adolf Hitler <a href=" https://phdcsseiden.github.io/Hitler/ "> Beat Nazis  </a> .
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
