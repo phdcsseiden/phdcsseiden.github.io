@@ -46,7 +46,7 @@ Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'
 Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira, Ukikawusha source cyangwa ntuyishyigikire mu buryo ukwiriye k'ubikoramo.
 
 
-- Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed.
+- Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash".
 
 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
