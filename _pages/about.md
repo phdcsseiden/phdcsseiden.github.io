@@ -9,7 +9,7 @@ redirect_from:
 ---
 
 
-<b> Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  Defamation Frog.  </b>
+<b> Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  Igikeri Gisebanya.  </b>
 
 
 <b> Archived & New Content. </b> 
@@ -24,7 +24,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Adolf Hitler  </a> .
+Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Adolf Hitler  </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
