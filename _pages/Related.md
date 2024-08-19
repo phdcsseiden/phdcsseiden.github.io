@@ -35,6 +35,6 @@ Nuggets <a href=" https://phdcsseiden.github.io/Nuggets/ "> Click. </a>
 
 
 
-<a href=" https://phdcsseiden.github.io/Wapfa/ "> Kagameeee </a> .
+<a href=" https://phdcsseiden.github.io/Wapfa/ "> Kagameee </a> 
 
 
