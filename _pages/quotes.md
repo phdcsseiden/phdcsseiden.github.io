@@ -61,8 +61,10 @@ Without intelligence, one is vulnerable; without security,  one is defenseless.
 The fog of war works both ways. The enemy is as much in the dark as you are. Be Bold! 
 
 
+<b> Victor Hugo </b>
 
 
+When dictatorship is a fact, revolution becomes a right. 
 
 
 
