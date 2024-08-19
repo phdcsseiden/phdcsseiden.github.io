@@ -1,7 +1,7 @@
 ---
 permalink: /Hitler/
 title: "Hitler"
-modified: 2024-08-16
+modified: 2023-08-23
 ---
 
 
@@ -9,7 +9,7 @@ modified: 2024-08-16
 
 
 
-Beat Nazis Adolf Hitler <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Adolf Hitler  </a> .
+Beat Nazis Adolf Hitler <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Beat Nazis  </a> .
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
