@@ -176,6 +176,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 
 <b> Aho abagabo barwaniye, Imbwa na Makayabu birahagendera.
 
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
@@ -280,7 +281,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Mamawacu/ "> Mamawacu </a> 
+- Mamawacu <a href=" https://phdcsseiden.github.io/Mamawacu/ "> Soma  </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
