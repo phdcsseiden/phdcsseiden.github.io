@@ -46,10 +46,10 @@ Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'
 Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira, Ukikawusha source cyangwa ntuyishyigikire mu buryo ukwiriye k'ubikoramo.
 
 
-Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash".
+Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash". Nta Faranga rikuvaho nawe kabisa.
 
 
-<b> Twibukiranye Umugani: Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. </b>  
+<b> Twibukiranye Umugani: </b>   Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. Umubyeyi Acumura Yicaye. Nta Mubyeyi Uvuma Umwana y'abyaye, iyo abikoze aba ari umubyeyi Gito. Umugani w'Umwana w'ikirara, m'uyindi myinshi cyaneee. 
 
 
 
