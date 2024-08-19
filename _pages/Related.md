@@ -30,11 +30,11 @@ Nuggets <a href=" https://phdcsseiden.github.io/Nuggets/ "> Click. </a>
 <a href=" https://history.state.gov/historicaldocuments/frus1949v05/d17 "> IV </a> ,
 
 
-<a href=" https://history.state.gov/historicaldocuments/frus1949v05/d13 "> V </a> .
+<a href=" https://history.state.gov/historicaldocuments/frus1949v05/d13 "> V </a> ,
 
 
 
 
-<a href=" https://phdcsseiden.github.io/Wapfa/ "> Kagameeee </a> ,
+<a href=" https://phdcsseiden.github.io/Wapfa/ "> Kagameeee </a> .
 
 
