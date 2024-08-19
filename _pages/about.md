@@ -18,19 +18,19 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Tr/ "> Transnational Repression </a>
+<a href=" https://phdcsseiden.github.io/Tr/ "> - Transnational Repression </a>
 
 
 
-Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Dictator Adolf Hitler  </a> 
+- Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> Dictator Adolf Hitler  </a> 
 
 
 
-<a href=" https://phdcsseiden.github.io/quotes/ "> Quotes  </a> 
+<a href=" https://phdcsseiden.github.io/quotes/ "> - Quotes  </a> 
 
 
 
-<a href=" https://phdcsseiden.github.io/Wacu/ "> Maman Wacu Soma  </a> 
+<a href=" https://phdcsseiden.github.io/Wacu/ "> - Maman Wacu Soma  </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
