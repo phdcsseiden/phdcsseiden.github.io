@@ -49,7 +49,8 @@ Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira,
 Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash".
 
 
-<b> Twibukiranye Umugani: Impyisi Y'Iwanyu Ikurya Ikurundarunda. </b>  
+<b> Twibukiranye Umugani: Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. </b>  
+
 
 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
