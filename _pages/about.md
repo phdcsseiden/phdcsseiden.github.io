@@ -12,7 +12,7 @@ redirect_from:
 <b> Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  Defamation Frog.  </b>
 
 
-<b> Archived & New Content </b> 
+<b> Archived & New Content. </b> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
