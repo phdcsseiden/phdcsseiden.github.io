@@ -46,6 +46,9 @@ Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'
 Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira, Ukikawusha source cyangwa ntuyishyigikire mu buryo ukwiriye k'ubikoramo.
 
 
+- Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed.
+
+
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
