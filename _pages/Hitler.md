@@ -15,7 +15,7 @@ Beat Nazis <a href=" https://en.wikipedia.org/wiki/Nazi_Germany "> Hard  </a> .
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
- <a href=" https://phdcsseiden.github.io/Totalitarianism/ "> Totalitarianism </a> |  <a href=" https://en.wikipedia.org/wiki/Satellite_state#Post-World_War_II "> Satellite State (Qatar / Saudi - Arabia & Kigali-Rwanda /Africa) </a> | <a href=" https://en.wikipedia.org/wiki/Leninism "> Kagamininism </a> | <a href=" https://en.wikipedia.org/wiki/One-party_state "> Rwanda - One Party State </a> . | <a href=" https://en.wikipedia.org/wiki/Joseph_Stalin "> Joseph Stalin </a> | <a href=" https://en.wikipedia.org/wiki/Nationalism "> Nationalism </a> .
+ <a href=" https://phdcsseiden.github.io/Totalitarianism/ "> Totalitarianism </a> |  <a href=" https://en.wikipedia.org/wiki/Satellite_state#Post-World_War_II "> Satellite State (Qatar / Saudi - Arabia & Kigali-Rwanda /Africa) </a> ,  <a href=" https://www.lsd.law/define/satellite-state "> Also Read </a> .| <a href=" https://en.wikipedia.org/wiki/Leninism "> Kagamininism </a> | <a href=" https://en.wikipedia.org/wiki/One-party_state "> Rwanda - One Party State </a> . | <a href=" https://en.wikipedia.org/wiki/Joseph_Stalin "> Joseph Stalin </a> | <a href=" https://en.wikipedia.org/wiki/Nationalism "> Nationalism </a> .
 
 
  <hr style="height:2px;border-width:0;color:gray;background-color:gray">
