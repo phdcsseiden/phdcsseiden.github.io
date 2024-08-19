@@ -34,7 +34,7 @@ Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf 
 
 
 
-<a href="  "> -Related  </a> 
+<a href=" https://phdcsseiden.github.io/Related/ "> -Related  </a> 
 
 
 
