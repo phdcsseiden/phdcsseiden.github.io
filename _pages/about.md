@@ -54,7 +54,7 @@ Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf 
 <img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
 
 
-<b> Tehilah  </b>
+<b> Tehilah!  </b>
 
 
 
