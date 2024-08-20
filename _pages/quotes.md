@@ -91,7 +91,10 @@ America can be trusted, America can be relied upon, and America stands up for fr
 We stand resolutely for democracy and freedom and against tyranny and oppression. 
 
 
+<b> Psalms 82:6 </b>
 
+
+You are gods, And all of you are children of the Most High. 
 
 
 
