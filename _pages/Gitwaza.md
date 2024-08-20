@@ -59,6 +59,9 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <b> Mu bindi byinshi ntavuze hano. ("Let the weak say I am strong and the poor say I am rich. ~Joel") </b>
 
 
+<b> Ikanisa Izarikora! </b>
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
