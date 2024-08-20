@@ -18,7 +18,7 @@ Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Retten Befreien Bergen  <a href=" https://phdcsseiden.github.io/Tr/ ">  Welcome. </a>
+Retten Befreien Bergen  <a href="  ">  Welcome. </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
