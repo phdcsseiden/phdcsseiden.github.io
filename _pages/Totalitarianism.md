@@ -125,7 +125,7 @@ It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise lead
 <b>  By coincidence, this paper was discovered in a train from New York City to Chappaqua, Westchester, New York. If that's the case, many people are grateful. </b>
 
 
-<b> RETEN Befreien Bergen; Victory. Gloryyyy </b> | We need <b> Mossad </b> in Saudi Arabia and Kigali - Rwanda.
+<b> RETTEN Befreien Bergen; Victory. Gloryyyy </b> | We need <b> Mossad </b> in Saudi Arabia and Kigali - Rwanda.
 
  <b> Space is a warfighting domain. -Everett C. Dolman </b>
 
@@ -256,7 +256,7 @@ Gen Aloys Muganga Yaaas Siiir | Gen Jean Bosco Kazura Yaaas Siiir | Gen Caesar K
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Gitwaza/ "> Kubita Gahoro Gitwaza Paul </a> 
+<a href=" https://phdcsseiden.github.io/Gitwaza/ "> Beat Gitwaza Paul </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
