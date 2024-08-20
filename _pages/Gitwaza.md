@@ -15,7 +15,7 @@ modified: 2024-08-17
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is Ngabo David Fabien  </a> ("May Allah Take You" "Shhh") among others..
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri / Bildberg etc..) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is Ngabo David Fabien  </a> ("May Allah Take You" "Shhh") among others.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -49,7 +49,7 @@ Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira,
 Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Uruhare rwa buri wese ruba rukenewe. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash". Nta Faranga rikuvaho nawe kabisa. Kagame ashobora kuba yarakwanduje. "Akimuhana Kaza Imvura Ihise".
 
 
-<b> Twibukiranye Umugani: </b>   Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. Umubyeyi Acumura Yicaye. Nta Mubyeyi Uvuma Umwana y'abyaye, iyo abikoze aba ari umubyeyi Gito. Umugani w'Umwana w'ikirara. Ntawe Uvuma Uwo Imana Itavumye ("Abanyamugisha B'Imana - Balamu"). M'uyindi myinshi. 
+<b> Twibukiranye Imigani: </b>   Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. Umubyeyi Acumura Yicaye. Nta Mubyeyi Uvuma Umwana y'abyaye, iyo abikoze aba ari umubyeyi Gito. Umugani w'Umwana w'ikirara. Ntawe Uvuma Uwo Imana Itavumye ("Abanyamugisha B'Imana - Balamu"). M'uyindi myinshi. 
 
 
 You must have a written agreement with someone before a major Propaganda, lobbying among others, Just to make sure you are on the same page. Otherwise It's unprofessional.
@@ -74,7 +74,7 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not. <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a>
+<b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not. <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
