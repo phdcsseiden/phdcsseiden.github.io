@@ -55,7 +55,7 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
-<b> To name a few. </b>
+<b> Mu bindi byinshi. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
