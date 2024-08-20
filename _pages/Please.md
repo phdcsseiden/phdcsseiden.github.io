@@ -16,7 +16,7 @@ modified: 2024-01-05
 1. <b> Please Note: </b> The way of addressing Terrorists/Nazis (Friends/Partners) differs from the way of communicating with the General Public.
 
 
-2. <b> For Official Translation: </b>  Only Use U.S Department of State Official Translators, Code Breakers among others.
+2. <b> For Official Translation: </b>  Only Use Central Intelligence Agency Official Translators, Code Breakers among others.
 
 
 
