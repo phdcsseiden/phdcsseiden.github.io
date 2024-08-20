@@ -137,6 +137,7 @@ It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise lead
 <img src="images/Headshotwoo.jpg" alt="" style="width:500px;height:333px;">
 
 
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
