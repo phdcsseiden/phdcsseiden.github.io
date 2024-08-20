@@ -9,6 +9,10 @@ modified: 2023-08-23
 
 
 
+1. <b> Please Note: </b> The way of addressing terrorists differs from the way of communicating with the General Public.
+
+
+2. <b> For Official Translation: </b>  Only Use U.S Department of State Official Translators, Code Breakers among others.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
