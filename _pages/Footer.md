@@ -13,7 +13,7 @@ modified: 2023-12-11
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-(Current as of 2024) | <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Science Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Science Non fiction. </a>
+(Current as of 2024) 
 
 
 <b> Without intelligence, one is vulnerable; without security,  one is defenseless. -Ancient military axiom </b>
