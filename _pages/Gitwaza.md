@@ -9,7 +9,7 @@ modified: 2024-08-17
 
 
 
-
+<b> Beat Hard Gitwaza. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -55,7 +55,7 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
-<b> Mu bindi byinshi. </b>
+<b> Mu bindi byinshi ntavuze hano. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
