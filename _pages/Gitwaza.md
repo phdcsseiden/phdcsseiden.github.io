@@ -13,7 +13,10 @@ modified: 2024-08-17
 
 
 <b> Now therefore, be wise, O kings; Be instructed,
-you judges of the earth. ~ Psalms 2:10 </b> As a king and judge let me apply Duty.
+you judges of the earth. ~ Psalms 2:10 </b> 
+
+
+As a king and judge let me apply Duty.
 
 
 <b> For the throne is established by righteousness. ~Proverbs 16:12 </b>
