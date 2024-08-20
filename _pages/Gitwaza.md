@@ -12,8 +12,10 @@ modified: 2024-08-17
 <b> Beat Hard Gitwaza. </b>
 
 
-<b> Now therefore, be wise, O kings; Be instructed,
-you judges of the earth. ~ Psalms 2:10 </b> 
+<b> Now therefore, be wise, O kings; Be instructed, you judges of the earth. ~ Psalms 2:10 </b> 
+
+
+ And have made us <b> kings and priests </b> to our God; And we <b>shall reign on the earth</b>. <b> ~Revelation 5:10 </b>
 
 
 As a <b>king</b> and <b>judge</b> let me apply <b>Duty</b>.
