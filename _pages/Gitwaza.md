@@ -87,8 +87,15 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <s> Gukwirakwiza Impuha Muri Rubanda, Kw'angisha abaturage ubutegetsi buriho no guteza imvururu muri Rubanda. </s> 
 
 
-<b> All power is given unto me in heaven and in
-earth. ~Matthew 28:18 </b>
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+-All power is given unto me in heaven and in earth. <b> ~Matthew 28:18 </b>
+
+
+-Salt is good, but if the salt loses its flavor, how
+will you season it? Have salt in yourselves, and
+have peace with one another. <b> ~Mark 9:50 </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
