@@ -53,7 +53,7 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 
 
 
-<a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
+<a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo. 
 
 
 <b> Mu bindi byinshi ntavuze hano. Ikanisa Izarikora! ("Let the weak say I am strong and the poor say I am rich. ~Joel") </b>
@@ -69,7 +69,7 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Dictator Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". </b>
+<b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo. </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a>
 
 
 
