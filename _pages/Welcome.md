@@ -9,6 +9,11 @@ modified: 2023-08-23
 
 
 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.  <b> Igikeri Gisebanya. Igikeri Cyica "Ibigwi By'Abantu". </b> 
 
 
