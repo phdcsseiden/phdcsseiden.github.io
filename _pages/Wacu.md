@@ -22,6 +22,9 @@ Abakwiriye Kubona Ibyiza tujye tubibaha.
 Niba utabizi, wa mugore we, Uri indatwa mu bagore.Uko Usa Ntibigereranwa, Nta wakuruta muri iyi Si Nzima. Nk'umbuye kukubona uko usa tukizihirwa. Mu misaya yawe ni heza cyane hasa nk'ifeza itunganijwe y'igiciro cyinshi. Ufite Uburenganzira bwo kubonana n'uwo ushaka, Igihe ubishakiye. Haranira Uburenganzira bwawe. Uzaze Unsure hanze hano mba, hatari muri Izo Nkoramaraso. Ni karibu, Umwanya Uwo ariwo Wose.
 
 
+Ikihebe Kagame, Ntikikagusuzuguze Abakozi Ukoresha. Bikwiriye guhagarara birarambiranye.
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
