@@ -56,10 +56,8 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
-<b> Mu bindi byinshi ntavuze hano. ("Let the weak say I am strong and the poor say I am rich. ~Joel") </b>
+<b> Mu bindi byinshi ntavuze hano. Ikanisa Izarikora! ("Let the weak say I am strong and the poor say I am rich. ~Joel") </b>
 
-
-<b> Ikanisa Izarikora! </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
