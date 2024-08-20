@@ -25,7 +25,7 @@ As a king and judge let me apply Duty.
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri / Bildberg etc..) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression! </b> | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is Ngabo David Fabien  </a> ("May Allah Take You" "Shhh") among others.
+<b> Who is Mr. Gitwaza Paul?? (Ugumane Inkuru ya December 2023 (Umwami Kabiri / Bildberg etc..) na February 2024). Ntugahindure Invugo zawe kenshi, byerekana ibitandukanye n'ibyo utwereka. (Who is Costantin Niyomwungeri) | Who is Akimana Solange?? Who is INGABIRE Rosine?? Who is NGABO Fabien David?? Who is Mathilde Mukantabana (Niki wabwiye abana bo mu Rwanda biga Columbia University ), Mathilde you must face Serious Consequences of Transnational Repression!  | Who is Pascasie Ntayombya? Who is Chantal Munanayire? Who is Ikirezi Viviane? Who is Giramata Vanessa? | <a href=" https://www.youtube.com/shorts/mBl69K4mNIo "> Who is Ngabo David Fabien  </a> ("May Allah Take You" "Shhh") among others.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
