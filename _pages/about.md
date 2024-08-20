@@ -19,7 +19,7 @@ Retten Befreien Bergen  <a href=" https://phdcsseiden.github.io/Welcome/ ">  Wel
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-|         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
+         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a>     |   <a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a>
 
 
 
