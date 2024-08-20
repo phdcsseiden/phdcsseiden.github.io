@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " The People's Page dedicated to Alain G. Shumbusho. " 
+title: " The People's Page. " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
@@ -18,7 +18,13 @@ Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Tr/ "> - Transnational Repression </a>
+Retten Befreien Bergen  <a href=" https://phdcsseiden.github.io/Tr/ ">  Welcome. </a>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+
 
 
 
