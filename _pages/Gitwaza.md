@@ -46,16 +46,17 @@ Ko ntamvura wagushije kandi narateguye aho <b>amazi y'imvura</b> ajya?? Amazi y'
 Wowe ukoresha information ufite mu nyungu zawe bwite, icyo washakaga cyarangira, Ukikawusha source cyangwa ntuyishyigikire mu buryo ukwiriye k'ubikoramo.
 
 
-Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Everyone Contribution is always needed. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash". Nta Faranga rikuvaho nawe kabisa. Kagame ashobora kuba yarakwanduje.
+Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange Umusanzu wabo. Either way, Uruhare rwa buri wese ruba rukenewe. Ushobora kuvuga uti. Utanga ibiruta liquid cash, Gusa cash ni "Musemakweri". Mbere yo gutanga ibiruta amafaranga, nayo yatange kuko ni Foundation yo hasi. Nawe urahembwa, uba ugomba gutanga Ituro. Otherwise, biba bivuze ko nange ngiyeho, ntacyo wazatanga cy'inyanye n'umusanzu w'ibifatika "cash". Nta Faranga rikuvaho nawe kabisa. Kagame ashobora kuba yarakwanduje.
 
 
 <b> Twibukiranye Umugani: </b>   Impyisi Y'Iwanyu Ikurya Ikurundarunda. Hakosa abakora. Umubyeyi Acumura Yicaye. Nta Mubyeyi Uvuma Umwana y'abyaye, iyo abikoze aba ari umubyeyi Gito. Umugani w'Umwana w'ikirara. Ntawe Uvuma Uwo Imana Itavumye ("Abanyamugisha B'Imana - Balamu"). M'uyindi myinshi. 
 
 
+
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo.
 
 
-<b> Mu bindi byinshi ntavuze hano. </b>
+<b> Mu bindi byinshi ntavuze hano. ("Let the weak say I am strong and the poor say I am rich. ~Joel 3:10") </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
