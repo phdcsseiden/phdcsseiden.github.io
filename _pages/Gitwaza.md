@@ -13,7 +13,7 @@ modified: 2024-08-17
 
 
 <b> Now therefore, be wise, O kings; Be instructed,
-you judges of the earth. ~ Psalms 2:10 </b>
+you judges of the earth. ~ Psalms 2:10 </b> As a king and judge let me apply Duty.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -81,7 +81,11 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not. <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a> 
 
 
-<s> Gukwirakwiza Impuha Muri Rubanda, Kw'angisha abaturage ubutegetsi buriho no guteza imvururu muri Rubanda. </s> N'Igihuha.
+<s> Gukwirakwiza Impuha Muri Rubanda, Kw'angisha abaturage ubutegetsi buriho no guteza imvururu muri Rubanda. </s> 
+
+
+<b> All power is given unto me in heaven and in
+earth. ~Matthew 28:18 </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
