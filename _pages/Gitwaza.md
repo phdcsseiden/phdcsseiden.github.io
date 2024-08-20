@@ -55,6 +55,8 @@ Twibukiranye: Abafite Bazongererwa. Abadafite Bildberg Izabaha n'abandi batange 
 You must have a written agreement with someone before a major Propaganda, lobbying among others, Just to make sure you are on the same page. Otherwise It's unprofessional.
 
 
+Ikindi Uvuga ibintu igihe cyitaragera, bigatera "Ikibazo". Urugero:  <a href=" https://inyarwanda.com/inkuru/95616/amafoto-yurusengero-rwagatangaza-rwa-miliyoni-8-zamadorali-apotre-gitwaza-yaguze-muri-amer-95616.html "> 1. </a>, <a href=" https://igihe.com/imyemerere/article/gitwaza-yaguze-urusengero-rwa-miliyoni-8-muri-amerika "> 2. </a>, <a href=" https://inyarwanda.com/inkuru/62806/intumwa-paul-gitwaza-yemeza-ko-nta-mukristo-ukennye-ubaho-62806.html "> 3 </a> mu bindi.
+
 
 <a href=" https://en.wikipedia.org/wiki/Orange_Revolution "> Soma Orange Revolution.  </a> N'izindi Nk'izo. 
 
@@ -72,7 +74,7 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a>
+<b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not. <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
