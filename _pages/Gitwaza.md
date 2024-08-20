@@ -12,6 +12,10 @@ modified: 2024-08-17
 <b> Beat Hard Gitwaza. </b>
 
 
+<b> Now therefore, be wise, O kings; Be instructed,
+you judges of the earth. ~ Psalms 2:10 </b>
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
