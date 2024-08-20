@@ -27,7 +27,7 @@ Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.
 
 
 
-Beat Nazis  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf Hitler  </a> 
+Beat Nazi  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf Hitler  </a> 
 
 
 
