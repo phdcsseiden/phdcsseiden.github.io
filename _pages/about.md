@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " The People's Page. " 
+title: " The People's Page " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
