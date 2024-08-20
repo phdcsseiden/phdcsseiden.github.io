@@ -16,7 +16,7 @@ modified: 2024-08-17
 you judges of the earth. ~ Psalms 2:10 </b> 
 
 
-As a king and judge let me apply Duty.
+As a <b>king</b> and <b>judge</b> let me apply <b>Duty</b>.
 
 
 <b> For the throne is established by righteousness. ~Proverbs 16:12 </b>
