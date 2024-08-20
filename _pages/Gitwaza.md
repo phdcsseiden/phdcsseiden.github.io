@@ -77,6 +77,9 @@ Meanwhile: Umuntu Yakoranye Nawe, <b> Ntawundi Yakorana Nawe </b>. <b> Kukumenya
 <b> Dictator/Terrorist Kagame Paul yatumye mva Mw'Ishuli Kubera "Imiyoborere Mibi". Nawe Wabimufashijemo (Mu buryo uzi cyangwa utazi). </b> | </b>Stalking & Harassment.</b>| You have been an acting agent of Transnational Repression knowingly or Not. <a href=" https://www.fbi.gov/investigate/counterintelligence/transnational-repression "> Read. </a> 
 
 
+<b> Gukwirakwiza Impuha Muri Rubanda, Kw'angisha abaturage ubutegetsi buriho no guteza imvururu muri Rubanda. </b> N'Igihuha.
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
