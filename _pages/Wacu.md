@@ -25,7 +25,13 @@ Niba utabizi, wa mugore we, Uri indatwa mu bagore.Uko Usa Ntibigereranwa, Nta wa
 Ikihebe Kagame, Ntikikagusuzuguze Abakozi Ukoresha. Bikwiriye guhagarara birarambiranye. <b> Bwira Ambassade Uze muri Vacance Byibuze Amezi Macye, Nk'uruhure Mu Mutwe. </b>
 
 
-N'Umunyamahoro, Ntabwo Abera, N'Umugwaneza N'ibindi byiza byinshi!
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+N'Umunyamahoro, Ntabwo Abera, N'Umugwaneza N'ibindi byiza byinshi (Aka naragakunze cyane). ~J.K & A.S.
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
