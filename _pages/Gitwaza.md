@@ -18,7 +18,10 @@ modified: 2024-08-17
  And have made us <b> kings and priests </b> to our God; And we <b>shall reign on the earth</b>. <b> ~Revelation 5:10 </b>
 
 
-As a <b>king</b> and <b>judge</b> let me apply <b>Duty</b>.
+Therefore,
+
+
+As a <b>king</b>, <b>judge</b> and <b> priest </b> let me apply <b>Duty</b>.
 
 
 <b> For the throne is established by righteousness. ~Proverbs 16:12 </b>
