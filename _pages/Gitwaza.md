@@ -21,7 +21,7 @@ modified: 2024-08-17
 Therefore,
 
 
-As a <b>king</b>, <b>judge</b>, <b> priest </b> among others, let me apply <b>Duty</b>.
+As a <b>king</b>, <b>judge</b>, <b> priest </b> <b>among others</b>, let me apply <b>Duty</b>.
 
 
 <b> For the throne is established by righteousness. ~Proverbs 16:12 </b>
