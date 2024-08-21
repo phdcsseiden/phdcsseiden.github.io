@@ -103,6 +103,12 @@ You are gods, And all of you are children of the Most High.
 “I said, ‘You are “gods”; you are all sons of the Most High.’
 
 
+<b> John 10:34  </b>
+
+
+Jesus answered them, “Is it not written in your Law, ‘I have said you are “gods”’[a]?
+
+
 
 
 
