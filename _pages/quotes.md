@@ -97,12 +97,6 @@ We stand resolutely for democracy and freedom and against tyranny and oppression
 You are gods, And all of you are children of the Most High. 
 
 
-<b> Psalm 82:6 </b>
-
-
-“I said, ‘You are “gods”; you are all sons of the Most High.’
-
-
 <b> John 10:34  </b>
 
 
