@@ -183,7 +183,7 @@ Who is Jules Ibingira?? | <span style="color:rgba(217,48,37,1.0"> <a href=" http
 <b> Eloi </b>   <span style="color:rgba(217,48,37,1.0"> <a href=" https://nytf.org/hannah-senesh/  "> I'm very proud of Hannah Senesh. </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.timesofisrael.com/hannah-senesh-archives-including-handwritten-poems-come-to-national-library/  "> Eli </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://www.nli.org.il/en/discover/israel/figures/hannah-szenes "> Jehovah </a> </span> | <span style="color:rgba(217,48,37,1.0"> <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/MATT+27.html "> Eli, Eli, lema sabachthani? </a> </span> 
 
 
-<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Amasarigoma N'Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza. Shaka akandi kazi.")  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
+<span style="color:rgba(217,48,37,1.0"> <a href=" https://www.instagram.com/p/C6jmnSkgUos/?img_index=1 "> Who is Angella Isimbi?? </a> ("Ahantu ukora ni mu by'ihebe, Indaya, Imbobo, ibyomanzi, Amasarigoma N'Ibindi bizina bibi byose, Ibyabayeho - Ibiriho - N'ibizaza.") Wakoze Report Ku nzego bireba ibyabaye Tumaze Kubonana? Mu Nama Mwajyiyemo na Ambassador Mathilde?  May Allah Take Her | Who is Nshuti Manasseh???? ("Special Operations Director") May Allah Take Him.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
