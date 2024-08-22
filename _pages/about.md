@@ -29,7 +29,7 @@ Retten Befreien Bergen  <a href=" https://phdcsseiden.github.io/Welcome/ ">  Wel
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Science Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Science Non-Fiction. </a> 
+ <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Science Non-Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Science Fiction. </a>   
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
