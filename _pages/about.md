@@ -13,7 +13,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Retten Befreien Bergen  <a href=" https://phdcsseiden.github.io/Welcome/ ">  Welcome </a>
+<b> CONFIDENTIAL </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
