@@ -13,7 +13,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> PRIVATE </b>
+<b> Private Mode </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
