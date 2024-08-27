@@ -13,7 +13,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> CONFIDENTIAL </b>
+<b> PRIVATE </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
