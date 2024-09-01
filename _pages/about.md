@@ -51,6 +51,12 @@ redirect_from:
 
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp
+
+
 
 
 
