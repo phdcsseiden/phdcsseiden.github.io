@@ -54,7 +54,7 @@ redirect_from:
 
 
 
-<img src=" https://en.wikipedia.org/wiki/Isaac_Herzog#/media/File:Emblem_of_Israel_dark_blue_full.svg"  alt="Menorah" width="500" height="333">
+<img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
 
 
 
