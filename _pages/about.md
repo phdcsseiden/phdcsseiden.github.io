@@ -54,7 +54,7 @@ redirect_from:
 
 
 
-<img src=" https://en.wikipedia.org/wiki/Isaac_Herzog#/media/File:Emblem_of_Israel_dark_blue_full.svg">
+<img src=" https://en.wikipedia.org/wiki/Isaac_Herzog#/media/File:Emblem_of_Israel_dark_blue_full.svg"  alt="Menorah" width="500" height="333">
 
 
 
