@@ -13,7 +13,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Beat Radical Imam / Beat Nazi!  </b> - <b> Private Mode. </b>
+<b>  Beat <a href="  "> Radical Imam!  </a> / Beat <a href=" https://encyclopedia.ushmm.org/content/en/article/the-nazi-party-1 "> Nazi!  </a>  </b> - <b> Private Mode. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
