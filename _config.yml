@@ -99,10 +99,10 @@ author:
   github           : #"alainshumbusho"
   google_plus      :
   keybase          :
-  instagram        : https://www.instagram.com
+  instagram        : "https://www.instagram.com"
   impactstory      : #"https://profiles.impactstory.org/u/xxxx-xxxx-xxxx-xxxx"
   lastfm           :
-  linkedin         : https://www.linkedin.com
+  linkedin         : "https://www.linkedin.com"
   orcid            : 
   pinterest        :
   stackoverflow    : # http://stackoverflow.com/users/123456/username
@@ -112,8 +112,8 @@ author:
   vine             :
   weibo            :
   xing             :
-  youtube          : https://www.youtube.com
-  wikipedia        : https://www.wikipedia.com
+  youtube          : "https://www.youtube.com"
+  wikipedia        : "https://www.wikipedia.com"
 
 
 # Reading Files
