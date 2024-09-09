@@ -33,8 +33,6 @@ redirect_from:
 <b>Location:</b> New York, New York, United States
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
