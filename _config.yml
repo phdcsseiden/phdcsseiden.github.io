@@ -7,8 +7,8 @@
 
 # Site Settings
 locale                   : "en-US"
-title                    : "Duty"
-title_separator          : "Counter-Terrorism University"
+title                    : "Counter-Terrorism University"
+title_separator          : "Duty"
 name                     : &name "Alain S"
 description              : &description "personal description"
 url                      : #https://alainshumbusho.github.io # the base hostname & protocol for your site e.g. "https://mmistakes.github.io"
