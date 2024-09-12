@@ -60,6 +60,39 @@ redirect_from:
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
+# ☆ ☆ ☆ ☆
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+## STAR       OF          DAVID         <b>☆</b>                
+
+
+Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>Israel</b>, and the <b> African Continent </b>. 
+
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<div class="mo-copyright">
+            <div class="container" style="text-align:center;">
+                <p>
+                  
+
+<img src="https://il.usembassy.gov/wp-content/themes/cms3/dist/images/us-flag-logo-footer.png" alt="American Flag" title="American Flag">
+
+<b> Duty </b>
+
+<img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
+
+
+<b> The Kotel </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
 
 
 <img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
