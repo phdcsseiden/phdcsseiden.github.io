@@ -16,13 +16,6 @@ redirect_from:
 <b>  Beat Radical Imam!  / Beat  Dictators and Terrorists!  </b> 
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-
-
-<a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a> 
-
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
@@ -80,6 +73,12 @@ redirect_from:
 Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>Israel</b>, and the <b> African Continent </b>. 
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+
+
+<a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense. </a> 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
