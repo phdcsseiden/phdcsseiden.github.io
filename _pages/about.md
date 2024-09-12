@@ -48,7 +48,7 @@ redirect_from:
 <img src="https://cdn11.bigcommerce.com/s-e2nupsxogj/images/stencil/50x50/products/6583/40512/izgubbg8gncm7xv67a1g__67596.1697212710.jpg?c=1" alt="Israel Flag 4ft x 6ft Nylon" title="Israel Flag 4ft x 6ft Nylon" sizes="50px">
 
 
-<b> Tehilah The Kotel Tikkun Olam!  </b>
+<b> The Kotel Tikkun Olam Tehilah!  </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
