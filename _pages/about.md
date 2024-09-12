@@ -83,6 +83,12 @@ Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+        <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a> 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 
 <img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
 
