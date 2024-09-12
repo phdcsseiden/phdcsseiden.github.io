@@ -30,7 +30,7 @@ redirect_from:
 <b>Founder:</b> Alain G. Shumbusho
 
 
-<b>Location:</b> New York, New York, United States
+<b>Location:</b> New York City, New York, United States of America
 
 
 
