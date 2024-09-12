@@ -61,13 +61,10 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-# ☆ ☆ ☆ ☆
+<b> ☆ ☆ ☆ ☆ </b>
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-## STAR       OF          DAVID         <b>☆</b>                
+<b> STAR       OF          DAVID</b>         <b>☆</b>                
 
 
 Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>Israel</b>, and the <b> African Continent </b>. 
