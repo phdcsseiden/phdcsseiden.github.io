@@ -61,10 +61,16 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+
+
 <b> ☆ ☆ ☆ ☆ </b>
 
 
-____________________
+
+
+__
+
+
 
 
 <b> STAR       OF          DAVID</b>         <b>☆</b>                
