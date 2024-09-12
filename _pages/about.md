@@ -13,7 +13,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Beat Radical Imam!  / Beat  Nazi!  </b> 
+<b>  Beat Radical Imam!  / Beat  Dictators and Terrorists!  </b> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
