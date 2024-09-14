@@ -9,7 +9,7 @@ modified: 2024-07-11
 
 
 
-## Call of Duty to End Transnational Repression among other reasons.
+## Transnational Repression.
 
 
 
