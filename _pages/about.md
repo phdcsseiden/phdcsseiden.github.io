@@ -56,7 +56,7 @@ redirect_from:
 
 
 
-<b> ☆ ☆ ☆ ☆ </b> | <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/GEN+12.html "> <b> ☆ ☆ ☆ ☆ </b>. </a>   
+ <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/GEN+12.html "> <b> ☆ ☆ ☆ ☆ </b>. </a>   
 
 
 
