@@ -14,13 +14,16 @@ modified: 2024-07-11
 
 
 
+- <a href="https://www.fbi.gov/investigate/counterintelligence/transnational-repression"> Transnational Repression. </a> Fed.
+
+
+- <a href="https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda"> Transnational Repression by Rwanda.  </a> Tom Lantos Human Rights Commission Hearing of February 15, 2024. Human Rights Watch, New York City, United States.
+
+  
 - <a href="https://geneva.usmission.gov/2024/06/26/joint-statement-on-transnational-repression/"> The United States Joint Statement on Transnational Repression. </a> The 56th Session of the Human Rights Council.
 
 
 - <a href="https://www.foreign.senate.gov/hearings/transnational-repression-authoritarians-targeting-disssenters-abroad">  Authoritarians Targeting Dissenters Abroad. </a> Transnational Repression, United States Senate Committee on Foreign Relations.
-
-
-- <a href="https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda"> Transnational Repression by Rwanda.  </a> Tom Lantos Human Rights Commission Hearing of February 15, 2024. Human Rights Watch, New York City, United States.
 
 
 - <a href="https://freedomhouse.org/report/transnational-repression"> Critical voices that challenge authoritarian rule become voices to silence. Journalists and human rights defenders. Diaspora groups and family members of exiles. Political activists, dissidents, and civil society leaders. </a>  Freedom House Report, Washington, D.C, United States.
