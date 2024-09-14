@@ -67,6 +67,9 @@ redirect_from:
 <b> STAR       OF          DAVID</b>         <b>☆</b>   
 
 
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <b> When dictatorship is a fact, revolution becomes a right. -Victor Hugo </b>
 
 
