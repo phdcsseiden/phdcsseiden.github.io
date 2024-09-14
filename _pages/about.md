@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " We the People " 
+title: " We the People . E pluribus unum " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
@@ -20,7 +20,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>Founder:</b> Alain G. Shumbusho
+<b>Founder:</b> Prof Dr.Alain G. Shumbusho
 
 
 <b>Location:</b> New York City, New York, United States of America
