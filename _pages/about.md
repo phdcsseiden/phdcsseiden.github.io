@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " We the People . E pluribus unum " 
+title: " E pluribus unum . We the People   " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
