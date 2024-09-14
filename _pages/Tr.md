@@ -31,8 +31,7 @@ modified: 2023-09-15
 - <a href="https://freedomhouse.org/report/transnational-repression"> Critical voices that challenge authoritarian rule become voices to silence. Journalists and human rights defenders. Diaspora groups and family members of exiles. Political activists, dissidents, and civil society leaders. </a>  Freedom House Report, Washington, D.C, United States.
 
 
-- <a href="https://www.state.gov/reports/2022-country-reports-on-human-rights-practices/rwanda/#:~:text=Transnational%20Repression,-There%20were%20reports&text=Extraterritorial%20Killing%2C%20Kidnapping%2C%20Forced%20Returns,purposes%20of%20politically%20motivated%20reprisal.TR"> Transnational Repression by Rwanda Report. </a> U.S Department of State, Harry S Truman Building,
-Northwest, Washington, D.C, United States. 
+- <a href="https://www.state.gov/reports/2022-country-reports-on-human-rights-practices/rwanda/#:~:text=Transnational%20Repression,-There%20were%20reports&text=Extraterritorial%20Killing%2C%20Kidnapping%2C%20Forced%20Returns,purposes%20of%20politically%20motivated%20reprisal.TR"> Transnational Repression by Rwanda Report. </a> <b> U.S Department of State. Washington, D.C, United States </b>. 
 
 
 - <a href="https://www.theguardian.com/world/2023/oct/10/rwanda-accused-of-broad-campaign-of-repression-against-dissidents"> Human Rights Watch report detailing alleged abuses at home and abroad raises questions over UK government’s asylum plan.  </a> Rwanda accused of broad campaign of repression against dissidents
