@@ -36,7 +36,7 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 <b>Founder:</b> Prof Dr. Alain G. Shumbusho
 
 
-<b>Location:</b> New York City, New York, United States of America
+<b>Location:</b> Manhattan-New York City, New York, United States of America
 
 
 
@@ -118,4 +118,4 @@ History repeats itself. -George Santayana
 
 
 
-
+<img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
