@@ -22,7 +22,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Gitwaza Muhirwa Paul ("New Constatin Niyomwungeri"). </b> 
+<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri"). </b> 
 
 
 Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
