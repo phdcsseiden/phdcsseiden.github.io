@@ -25,7 +25,7 @@ redirect_from:
 <b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Gitwaza Muhirwa Paul ("New Constatin Niyomwungeri"). </b> 
 
 
-Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator.
+Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
 
 Jeannette Kagame is the one life gift we have ever had for the past couple of centuries. God Bless Her.
 
