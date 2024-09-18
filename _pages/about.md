@@ -9,14 +9,20 @@ redirect_from:
 ---
 
 
+
+<img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <b> Matthew Chapter eleven, verse twenty-eight: Come to me, all you who are weary and burdened, and i will give you rest. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Beat Radical Imam!  / Beat  Dictators and Terrorists!  </b> 
-
+<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul. </b> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
