@@ -17,6 +17,12 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+<b> It's always a good idea to mind your business. </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
 <b> Matthew Chapter eleven, verse twenty-eight: Come to me, all you who are weary and burdened, and i will give you rest. </b>
 
 
