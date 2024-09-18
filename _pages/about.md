@@ -10,7 +10,7 @@ redirect_from:
 
 
 
-<b> Not for everyone. Only a Few Elites. </b> 
+<b> Only for some. Only a Few Elites. </b> 
 <img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
 
 
