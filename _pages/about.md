@@ -40,7 +40,7 @@ redirect_from:
 
 Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
 
-Jeannette Kagame is the one life gift we have ever had for the past couple of centuries. God Bless Her.
+Jeannette Kagame is the one life gift we have ever had for the past couple of centuries. <b>God Bless Her</b>.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
