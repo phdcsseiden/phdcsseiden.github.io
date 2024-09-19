@@ -35,7 +35,7 @@ redirect_from:
 <b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
-<b>"Papa Charlie".</b> Akazi. Paul Gitwaza is not serious.
+<b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
