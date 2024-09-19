@@ -32,7 +32,10 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
+<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. "Papa Charlie"
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
