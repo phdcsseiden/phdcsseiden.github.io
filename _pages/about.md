@@ -20,7 +20,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Only for some. Only a few Elites. </b> , <b> It's always a good idea to mind your business. </b>
+<b> Only for some. Only a few Elites. </b>  <b> It's always a good idea to mind your business. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
