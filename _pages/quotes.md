@@ -82,7 +82,7 @@ If you harm an American, we will respond.
 <b> President Joe Biden </b>
 
 
-America can be trusted, America can be relied upon, and America stands up for freedom. We stand strong for our allies. We never bow down to anyone, and certainly not to Vladimir Putin / not to "Lucifer Twin". So, let’s get on with this. 
+America can be trusted, America can be relied upon, and America stands up for freedom. We stand strong for our allies. We never bow down to anyone, and certainly not to Vladimir Putin. So, let’s get on with this. 
 
 
 <b> President Joe Biden </b>
