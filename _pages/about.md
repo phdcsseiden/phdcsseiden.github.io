@@ -124,7 +124,13 @@ Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>
 <hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
 
 
-History repeats itself. ~George Santayana
+History repeats itself. ~George Santayana 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
+
+
+<b>Duty. Provide Cover</b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
