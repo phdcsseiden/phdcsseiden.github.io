@@ -20,7 +20,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-# E pluribus unum . <a href=" https://phdcsseiden.github.io/king/ "> We the People.   </a> 
+E pluribus unum .  <a href=" https://phdcsseiden.github.io/king/ "> We the People.   </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
