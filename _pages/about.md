@@ -20,7 +20,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-# E pluribus unum . We the People.
+# E pluribus unum . <a href=" https://phdcsseiden.github.io/king/ "> We the People.   </a> 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -130,7 +130,7 @@ History repeats itself. ~George Santayana
 <hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
 
 
-<b>Duty. Provide Cover</b>
+<b>Duty. Provide Cover. Lobbying</b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
