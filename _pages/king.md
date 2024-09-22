@@ -11,4 +11,4 @@ redirect_from:
 
 
 
-<img src=" https://www.middletownbiblechurch.org/greateve/crown.JPG" alt="Menorah" width="500" height="333">
+<img src="https://www.middletownbiblechurch.org/greateve/crown.JPG" alt="crown" width="500" height="333">
