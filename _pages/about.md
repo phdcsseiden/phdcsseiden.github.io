@@ -41,7 +41,7 @@ Only for some. Only a few Elites.  It's always a good idea to mind your business
 <b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
-<b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b> | Sinzi Umuntu waroze abanyarwanda. More details will  be out at the right time.
+<b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b> | Sinzi Umuntu waroze abanyarwanda. More details will  be out at the right time. | Ariko narimbizi ko <b>ari bimwe bye</b>.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -55,7 +55,7 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>Founder:</b> Prof Dr. Alain G. Shumbusho
+<b>Founder:</b>  Alain G. Shumbusho
 
 
 <b>Location:</b> Manhattan-New York City, New York, United States of America
