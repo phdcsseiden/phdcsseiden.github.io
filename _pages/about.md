@@ -99,7 +99,7 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> STAR       OF          DAVID</b>         <b>☆</b>   
+<b> STAR       OF          DAVID</b>         <b>☆</b>   |  <a href=" https://en.wikipedia.org/wiki/The_Chosen_One_(trope)#:~:text=The%20Chosen%20One%2C%20also%20known,%2C%20and%2For%20special%20lineage. "> The Chosen One (Uwatoranijwe).  </a>  
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
