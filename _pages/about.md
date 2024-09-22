@@ -1,6 +1,6 @@
 ---
 permalink: /
-title: " E pluribus unum . We the People.   " 
+title: "    " 
 excerpt: "About me"
 author_profile: true
 redirect_from: 
@@ -20,7 +20,13 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Only for some. Only a few Elites. </b>  <b> It's always a good idea to mind your business. </b>
+E pluribus unum . We the People.
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+Only for some. Only a few Elites.  It's always a good idea to mind your business. 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -35,13 +41,13 @@ redirect_from:
 <b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
-<b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b> | Sinzi Umuntu waroze abanyarwanda.
+<b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b> | Sinzi Umuntu waroze abanyarwanda. More details will  be out at the right time.
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Please Note: First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
+<b>Please Note:</b> First Lady Jeannette Kagame does not support the Evil Work of the Dictator. As far as I know.
 
 Jeannette Kagame is the one life gift we have ever had for the past couple of centuries. <b>God Bless Her</b>.
 
