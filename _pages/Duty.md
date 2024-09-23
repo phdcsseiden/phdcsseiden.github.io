@@ -27,15 +27,7 @@ Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.
 
 
 
-Beat Nazi  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf Hitler  </a> 
-
-
-
 <a href=" https://phdcsseiden.github.io/quotes/ "> - Quotes  </a> 
-
-
-
-<a href=" https://phdcsseiden.github.io/Wacu/ "> - Maman Wacu Soma  </a> 
 
 
 
@@ -46,6 +38,5 @@ Beat Nazi  <a href=" https://phdcsseiden.github.io/Hitler/ "> - Dictator Adolf H
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<a href=" https://phdcsseiden.github.io/Footer/ "> Footer </a> 
 
 
