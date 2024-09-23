@@ -55,16 +55,13 @@ Space is a warfighting domain.
 Without intelligence, one is vulnerable; without security,  one is defenseless.  
 
 
-<b> General George S. Patton </b>
 
-
-The fog of war works both ways. The enemy is as much in the dark as you are. Be Bold! 
 
 
 <b> Victor Hugo </b>
 
 
-When dictatorship is a fact, revolution becomes a right. | Case of Rwanda - Africa.
+When dictatorship is a fact, revolution becomes a right. 
 
 
 <b> United States Army Special Forces </b>
@@ -100,7 +97,7 @@ You are gods, And all of you are children of the Most High.
 <b> John 10:34  </b>
 
 
-Jesus answered them, “Is it not written in your Law, ‘I have said you are “gods”’[a]?
+Jesus answered them, “Is it not written in your Law, ‘I have said you are “gods”’?
 
 
 
