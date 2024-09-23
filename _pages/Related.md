@@ -21,7 +21,7 @@ modified: 2024-08-17
 <a href=" https://www.goarmy.com/careers-and-jobs/find-your-path/army-officers/rotc "> II </a> 
 
 
-<a href=" https://aa.usno.navy.mil/faq/millennium#:~:text=Therefore%2C%20the%2021st%20century%20began,the%20years%20AD%201%2D1000 "> III </a> ,
+<a href=" https://aa.usno.navy.mil/faq/millennium#:~:text=Therefore%2C%20the%2021st%20century%20began,the%20years%20AD%201%2D1000 "> III </a> 
 
 
 <a href=" https://history.state.gov/historicaldocuments/frus1949v05/d17 "> IV </a> 
