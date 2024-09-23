@@ -1,6 +1,6 @@
 ---
-permalink: /Welcome/
-title: "Welcome"
+permalink: /Duty/
+title: "Duty"
 modified: 2023-08-23
 ---
 
@@ -19,7 +19,7 @@ Counterterrorism. Anti Dictatorship Against Dictator "Radical Imam" Kagame Paul.
 
 
 
- Archived & New <b>Leaked</b> Content. 
+ Archived & New Leaked Content. 
 
 
 
