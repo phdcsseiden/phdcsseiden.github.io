@@ -56,8 +56,6 @@ Without intelligence, one is vulnerable; without security,  one is defenseless.
 
 
 
-
-
 <b> Victor Hugo </b>
 
 
@@ -98,6 +96,13 @@ You are gods, And all of you are children of the Most High.
 
 
 Jesus answered them, “Is it not written in your Law, ‘I have said you are “gods”’?
+
+
+<b>Alain G. Shumbusho </b>
+
+
+It's time to abolish Ruthless, autocracy, tyranny, dictatorship, and unwise leadership style on the African Continent, where millions of people are put in danger due to the orders of a single individual <b> Kagame Paul </b>; this has to stop. We are free to free others. Let's do it, Folks. 
+
 
 
 
