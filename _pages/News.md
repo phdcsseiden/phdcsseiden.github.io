@@ -50,7 +50,7 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 8. Statement from President Joe Biden on the Release of Paul Rusesabagina <a href=" https://www.whitehouse.gov/briefing-room/statements-releases/2023/03/24/statement-from-president-joe-biden-on-the-release-of-paul-rusesabagina/"> Click Here. </a>
 
 
-To name a few.
+
 
 
 
