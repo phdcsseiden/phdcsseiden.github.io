@@ -42,10 +42,10 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 4. <a href=" https://apnews.com/article/ukraine-russia-military-aid-us-e0a07e45c4b6656d128c5df8c51357fb"> -US to send new $225 million military aid package to Ukraine, officials say </a>
 
 
-5. <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> -2023: US suspends military aid to Rwanda over support for M23 rebels in DRC </a>
+<b>5.</b> <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> -2023: US suspends military aid to Rwanda over support for M23 rebels in DRC </a>
 
 
-6. <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> -2012: U.S. cuts military aid to Rwanda over Congo rebel support </a>
+<b>6.</b> <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> -2012: U.S. cuts military aid to Rwanda over Congo rebel support </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
