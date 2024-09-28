@@ -7,7 +7,7 @@
 
 # Site Settings
 locale                   : "en-US"
-title                    : "Information Technology University - Tech Revolution"
+title                    : "Information Technology University"
 title_separator          : "Duty"
 name                     : &name "Alain S"
 description              : &description "personal description"
