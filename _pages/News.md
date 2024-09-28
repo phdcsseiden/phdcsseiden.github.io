@@ -31,6 +31,9 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 - <b>2012: U.S. cuts military aid to Rwanda over Congo rebel support </b> <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> Click Here. </a>
 
 
+- <b>US Puts Rwanda on Child Soldier Blacklist </b> <a href=" https://www.ecofinagency.com/public-management/2209-44884-us-puts-rwanda-on-child-soldier-blacklist"> Click Here. </a>
+
+
 - Briefing Security Council, Special Representative Urges More Support to Protect Civilians in Democratic Republic of Congo, as Humanitarian Crisis Escalates <a href=" https://press.un.org/en/2023/sc15426.doc.htm"> Click Here.</a> 
 
 
