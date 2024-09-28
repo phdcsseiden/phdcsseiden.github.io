@@ -1,10 +1,11 @@
 ---
 permalink: /News/
 title: "News"
-modified: 2024-07-03
+modified: 2023-07-03
 ---
 
 
+<b> Last Updated: 8/13/2023 </b>
 
 
 
@@ -19,8 +20,7 @@ modified: 2024-07-03
 
 
 
-
-G-Zero.  According to our database, the top ten perpetrators of transnational repression globally are China,
+According to our database, the top ten perpetrators of transnational repression globally are China,
 Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and Rwanda. <a href=" https://homeland.house.gov/wp-content/uploads/2024/01/2024-01-17-CTI-HRG-Testimony-1.pdf"> Together, these ten countries are responsible for 80 percent of the cases in our database. </a>
 
 
