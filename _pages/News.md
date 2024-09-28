@@ -19,16 +19,16 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 - As Congress once again addresses U.S. military aid to Ukraine, a DOD official said helping Ukraine defeat Russian aggression is in the United States' interest. <a href=" https://www.defense.gov/News/News-Stories/Article/Article/3671938/dod-official-restates-why-supporting-ukraine-is-in-us-interest/"> Click Here. </a>
 
 
-- <a href=" https://www.defense.gov/Spotlights/Support-for-Ukraine/"> -The United States is working with allies and partners to support Ukraine in their fight for sovereignty and freedom. </a>
+-  The United States is working with allies and partners to support Ukraine in their fight for sovereignty and freedom. <a href=" https://www.defense.gov/Spotlights/Support-for-Ukraine/"> Click Here. </a>
 
 
-- <a href=" https://apnews.com/article/ukraine-russia-military-aid-us-e0a07e45c4b6656d128c5df8c51357fb"> -US to send new $225 million military aid package to Ukraine, officials say </a>
+- US to send new $225 million military aid package to Ukraine, officials say. <a href=" https://apnews.com/article/ukraine-russia-military-aid-us-e0a07e45c4b6656d128c5df8c51357fb"> Click Here. </a>
 
 
-<b>*.</b> -2023: US suspends military aid to Rwanda over support for M23 rebels in DRC <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> Click Here. </a>
+- <b>2023:</b> US suspends military aid to Rwanda over support for M23 rebels in DRC <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> Click Here. </a>
 
 
-<b>*</b>  -2012: U.S. cuts military aid to Rwanda over Congo rebel support <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> Click Here. </a>
+- <b>2012:</b> U.S. cuts military aid to Rwanda over Congo rebel support <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> Click Here. </a>
 
 
 - Briefing Security Council, Special Representative Urges More Support to Protect Civilians in Democratic Republic of Congo, as Humanitarian Crisis Escalates <a href=" https://press.un.org/en/2023/sc15426.doc.htm"> Click Here.</a> 
