@@ -26,7 +26,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-Only for some. Only a few Elites.  It's always a good idea to mind your business. 
+<b>Please Note:</b> Only for some. Only a few Elites.  It's always a good idea to mind your business. 
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
@@ -44,7 +44,7 @@ Only for some. Only a few Elites.  It's always a good idea to mind your business
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed Apostle Gitwaza Muhirwa Paul ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
+<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed U.S Based Pastor ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
 <b>"Papa Charlie".</b> Akazi. <b>Paul Gitwaza is not serious.</b>  More details will  be out at the right time. 
