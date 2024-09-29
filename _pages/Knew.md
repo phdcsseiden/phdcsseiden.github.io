@@ -5,6 +5,9 @@ modified: 2023-12-15
 ---
 
 
+<b> Last Updated: 8/13/2024 </b>
+
+
 <b> The Dispot Dictator "You Never Knew". </b>
 
 
@@ -31,6 +34,10 @@ modified: 2023-12-15
 
 
 -Your Loved ones
+
+
+
+-When you build up and stand firm, he pursues you in the U.S. under transnational repression. We must answer him under <b> "Operation Wrath of God" </b> <b> U.S. Version. </b>
 
 
 
