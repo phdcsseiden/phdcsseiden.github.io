@@ -10,7 +10,7 @@ modified: 2023-07-03
 
 
 According to our database, the top ten perpetrators of transnational repression globally are China,
-Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and <b>Rwanda</b> ("Read <b>Kagamistan.</b>") <b>One Party State Rwanda </b> <a href=" https://en.wikipedia.org/wiki/One-party_state ">  ("The North Korea Of Africa") </a>. 
+Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and <b>Rwanda</b> ("Read <b>Kagamistan</b>").  <b>Rwanda - One Party State  </b> <a href=" https://en.wikipedia.org/wiki/One-party_state ">  ("The North Korea Of Africa") </a>. 
 
 
 
