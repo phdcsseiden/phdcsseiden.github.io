@@ -25,6 +25,9 @@ modified: 2023-09-15
 
 - <a href="https://www.hrw.org/news/2024/02/15/transnational-repression-rwanda"> Transnational Repression by Rwanda.  </a> Tom Lantos Human Rights Commission Hearing of February 15, 2024. Human Rights Watch, New York City, United States.
 
+
+<b> Active Agent on Field from Rwanda / Umutoni Stella ("Connecticut based as of 2023") </b>
+
   
 - <a href="https://geneva.usmission.gov/2024/06/26/joint-statement-on-transnational-repression/"> The United States Joint Statement on Transnational Repression. </a> The 56th Session of the Human Rights Council.
 
