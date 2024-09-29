@@ -35,7 +35,12 @@ modified: 2023-08-23
 
 
 
-<a href=" https://phdcsseiden.github.io/Musician/ "> - Musician  </a> Later
+<a href=" https://phdcsseiden.github.io/Musician/ "> - A.G.S The Musician  </a> 
+
+
+
+
+<a href=" https://phdcsseiden.github.io/Knew/ "> - The Despot Dictator you never knew  </a> 
 
 
 
