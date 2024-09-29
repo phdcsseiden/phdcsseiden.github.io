@@ -15,7 +15,7 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 
 
 
-<b>Rwanda - One Party State  </b> <a href=" https://en.wikipedia.org/wiki/One-party_state ">  ("The North Korea Of Africa") </a>. 
+- <b>Rwanda / One Party State  </b> <a href=" https://en.wikipedia.org/wiki/One-party_state ">  ("The North Korea Of Africa") </a>. 
 
 
 
