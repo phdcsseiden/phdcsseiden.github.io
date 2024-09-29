@@ -20,8 +20,7 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 
 
 
-<a href=" https://homeland.house.gov/wp-content/uploads/2024/01/2024-01-17-CTI-HRG-Testimony-1.pdf"> 
-Together, these ten countries are responsible for 80 percent of the cases in our database. </a>
+- Together, these ten countries are responsible for 80 percent of the cases in <a href=" https://homeland.house.gov/wp-content/uploads/2024/01/2024-01-17-CTI-HRG-Testimony-1.pdf"> our database. </a>
 
 
 - As Congress once again addresses U.S. military aid to Ukraine, a DOD official said helping Ukraine defeat Russian aggression is in the United States' interest. <a href=" https://www.defense.gov/News/News-Stories/Article/Article/3671938/dod-official-restates-why-supporting-ukraine-is-in-us-interest/"> Click Here. </a>
