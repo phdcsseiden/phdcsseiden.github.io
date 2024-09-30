@@ -119,13 +119,6 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 Thank You. God bless you. May God Bless the <b>United States of America</b>, <b>Israel</b>, and the <b> African Continent </b>. 
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-
-<a href=" https://www.collinsdictionary.com/us/dictionary/english/telepathy "> Telepathy  </a> | <a href=" https://dictionary.cambridge.org/us/dictionary/english/telepathy "> CD  </a> | <a href=" https://www.collinsdictionary.com/us/dictionary/english/sixth-sense "> Sixth Sense </a> | <a href=" https://www.merriam-webster.com/dictionary/d%C3%A9j%C3%A0%20vu "> déjà vu  </a> | " <a href=" https://en.wikipedia.org/wiki/Rashid_(name)#:~:text=Rashid%20is%20the%20transliteration%20of,Pronunciation "> Rashid </a>   & <b>Ibrahim</b>" .
-
-
 <hr style="height:2px;border-width:0;color:gray;background-color:gray"> 
 
 
