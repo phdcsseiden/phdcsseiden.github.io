@@ -152,7 +152,7 @@ History repeats itself. ~George Santayana
  <b> Alain G. Shumbusho and Miss Grace Ingabire at Massachusetts Institute of Technology, Cambridge Mass, United States. </b>
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
 
 
 
