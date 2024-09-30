@@ -32,3 +32,18 @@ modified: 2023-09-08
 
 
 - Rashid <a href=" https://en.wikipedia.org/wiki/Rashid_(name)#:~:text=Rashid%20is%20the%20transliteration%20of,Pronunciation "> Read </a>   & <b>Ibrahim</b>" .
+
+
+
+
+ - Science Non-Fiction <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Read </a>
+
+
+    
+
+ -  Science Fiction  <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Read </a>
+
+
+
+ 
+ -  Scientia sacra  <a href="https://en.wikipedia.org/wiki/Scientia_sacra#:~:text=In%20perennial%20philosophy%2C%20scientia%20sacra,essence%20of%20every%20sacred%20tradition. "> Read </a>
