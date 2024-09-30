@@ -31,4 +31,4 @@ modified: 2023-09-08
 
 
 
-<a href=" https://en.wikipedia.org/wiki/Rashid_(name)#:~:text=Rashid%20is%20the%20transliteration%20of,Pronunciation "> Rashid </a>   & <b>Ibrahim</b>" .
+- Rashid <a href=" https://en.wikipedia.org/wiki/Rashid_(name)#:~:text=Rashid%20is%20the%20transliteration%20of,Pronunciation "> Read </a>   & <b>Ibrahim</b>" .
