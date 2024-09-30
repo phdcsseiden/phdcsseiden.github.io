@@ -49,7 +49,8 @@ modified: 2023-08-23
 
 
 
--His Dictionary <a href=" https://phdcsseiden.github.io/Dictionary/ "> Read </a> 
+
+- His Dictionary <a href=" https://phdcsseiden.github.io/Dictionary/ "> Read </a> 
 
 
 
@@ -58,7 +59,7 @@ modified: 2023-08-23
 
 
 
- <img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
+<img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
 
 
 
