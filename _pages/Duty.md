@@ -15,34 +15,34 @@ modified: 2023-08-23
 
 
 
-<a href=" https://phdcsseiden.github.io/Tr/ "> -Transnational Repression  </a> 
+-Transnational Repression  <a href=" https://phdcsseiden.github.io/Tr/ "> Read </a> 
 
 
 
 
-<a href=" https://phdcsseiden.github.io/News/ "> -Press  </a> 
+-Press <a href=" https://phdcsseiden.github.io/News/ "> Read  </a> 
 
 
 
 
-<a href="  "> -Transnational Repression at Work/Business & School  </a>  Later
+-Transnational Repression at Work/Business & School <a href="  ">  Read </a>  Later
 
 
 
 
-<a href=" https://phdcsseiden.github.io/quotes/ "> - Quotes  </a> 
+- Quotes <a href=" https://phdcsseiden.github.io/quotes/ "> Read  </a> 
 
 
 
 
-<a href=" https://phdcsseiden.github.io/Musician/ "> - A.G.S The Musician  </a> 
+- A.G.S The Musician <a href=" https://phdcsseiden.github.io/Musician/ "> Open  </a> 
 
 
 
 
-<a href=" https://phdcsseiden.github.io/Knew/ "> - The Despot Dictator you never knew  </a> 
+- The Despot Dictator you never knew <a href=" https://phdcsseiden.github.io/Knew/ ">   </a> 
 
 
 
 
-<a href=" https://phdcsseiden.github.io/Congress/ "> - Congress  </a> 
+- Congress  <a href=" https://phdcsseiden.github.io/Congress/ "> See </a> 
