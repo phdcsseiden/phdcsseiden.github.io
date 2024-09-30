@@ -155,7 +155,7 @@ History repeats itself. ~George Santayana
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
+
 
 
 
