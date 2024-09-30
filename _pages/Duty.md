@@ -20,7 +20,7 @@ modified: 2023-08-23
 
 
 
--Press <a href=" https://phdcsseiden.github.io/News/ "> Read  </a> 
+-Lectures <a href=" https://phdcsseiden.github.io/Lectures/ "> Read  </a> 
 
 
 
