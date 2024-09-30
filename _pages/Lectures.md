@@ -1,7 +1,7 @@
 ---
-permalink: /News/
-title: "News"
-modified: 2023-07-03
+permalink: /Lectures/
+title: "Lectures"
+modified: 2023-09-08
 ---
 
 
