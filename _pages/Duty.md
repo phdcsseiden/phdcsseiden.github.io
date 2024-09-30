@@ -53,3 +53,6 @@ modified: 2023-08-23
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
+
+
+<img src="https://www.middletownbiblechurch.org/greateve/crown.JPG" alt="crown" width="500" height="333">
