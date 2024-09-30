@@ -67,11 +67,6 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
- <a href=" https://www.merriam-webster.com/dictionary/nonfiction "> Science Non-Fiction. </a>  <b>OR</b> <a href=" https://www.merriam-webster.com/dictionary/science%20fiction "> Science Fiction. </a>   | <a href=" https://en.wikipedia.org/wiki/Scientia_sacra#:~:text=In%20perennial%20philosophy%2C%20scientia%20sacra,essence%20of%20every%20sacred%20tradition. "> Scientia sacra. </a>
-
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
