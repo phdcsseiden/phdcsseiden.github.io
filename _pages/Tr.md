@@ -47,6 +47,6 @@ modified: 2023-09-15
 
 
 
-<b> Active Agent on Field from Rwanda / Umutoni Stella ("Connecticut based as of 2023") </b>
+ Active Agent on Field from Rwanda / Umutoni Stella ("Connecticut based as of 2023"). 
 
 
