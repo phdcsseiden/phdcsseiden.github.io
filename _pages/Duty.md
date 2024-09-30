@@ -25,6 +25,11 @@ modified: 2023-08-23
 
 
 
+- Photo Gallery <a href="  "> Open  </a> Later
+
+
+
+
 -Transnational Repression at Work/Business & School <a href="  ">  Read </a>  Later
 
 
@@ -35,17 +40,17 @@ modified: 2023-08-23
 
 
 
-- A.G.S The Musician <a href=" https://phdcsseiden.github.io/Musician/ "> Open  </a> 
+- Alain The Musician <a href=" https://phdcsseiden.github.io/Musician/ "> Open  </a> Later
 
 
 
 
-- The Despot Dictator you never knew <a href=" https://phdcsseiden.github.io/Knew/ ">   </a> 
+- The Despot Dictator you never knew <a href=" https://phdcsseiden.github.io/Knew/ "> Read  </a> 
 
 
 
 
-- Congress  <a href=" https://phdcsseiden.github.io/Congress/ "> See </a> 
+- Congress  <a href=" https://phdcsseiden.github.io/Congress/ "> See </a> Later
 
 
 
