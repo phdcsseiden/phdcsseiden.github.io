@@ -64,21 +64,6 @@ E pluribus unum  <a href=" https://www.si.edu/object/e-pluribus-unum-gazetteer-u
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-
-
-<img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
-
-
-
-
-<img src="https://www.middletownbiblechurch.org/greateve/crown.JPG" alt="crown" width="500" height="333">
-
-
-
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
 <b>  Counterterrorism. Beat "Radical Imam" Despot Dictator Kagame Paul & The Bribed North America Based Pastor ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
@@ -165,4 +150,20 @@ History repeats itself. ~George Santayana
 
 
         <a href=" https://www.paypal.com/donate/?business=FYX2GY3ENQP9U&no_recurring=0&item_name=Your+unique+opportunity+to+encourage+Alain+G.+Shumbusho+to+make+the+world+a+better+place.&currency_code=USD">  Donate Here. </a> 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+
+
+<img src="https://www.sacredheart.edu/media/shu-media/homepage/Park-Avenue-Campus-980x980.jpg">
+
+
+
+
+<img src="https://www.middletownbiblechurch.org/greateve/crown.JPG" alt="crown" width="500" height="333">
+
+
+
 
