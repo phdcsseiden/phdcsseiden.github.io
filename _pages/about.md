@@ -14,28 +14,9 @@ redirect_from:
 
 
 
-<img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
-
-<b> E pluribus unum </b>.   <b> We the People. </b>
-
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-<b>Please Note:</b> Only for some. Only a few Elites.  It's always a good idea to mind your business. 
-
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-<b> Matthew Chapter eleven, verse twenty-eight: Come to me, all you who are weary and burdened, and i will give you rest. </b>
-
-
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
 <b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome. Feel At Home.  </a>
@@ -44,7 +25,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b>  Counterterrorism. Beat "Radical Imam" Dictator Kagame Paul & The Bribed North America Based Pastor ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
+<b>  Counterterrorism. Beat "Radical Imam" Despot Dictator Kagame Paul & The Bribed North America Based Pastor ("New Bishop Constatin Niyomwungeri") ("Apostle Judas Iscariot")</b>  <b>Retired but not tired Senior Human Trafficker</b>. 
 
 
 
