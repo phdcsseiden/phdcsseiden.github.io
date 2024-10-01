@@ -19,7 +19,7 @@ redirect_from:
 
 
 
-<b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome. Feel At Home.  </a>
+<b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome.  </a>
 
 
 
