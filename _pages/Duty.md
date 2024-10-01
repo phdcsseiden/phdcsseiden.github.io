@@ -49,7 +49,7 @@ E pluribus unum  <a href=" https://www.si.edu/object/e-pluribus-unum-gazetteer-u
 - Quotes <a href=" https://phdcsseiden.github.io/quotes/ "> Read  </a> 
 
 
-- Alain The Musician <a href=" https://phdcsseiden.github.io/Musician/ "> Open  </a> <b>Later</b>
+- Alain is very Musical <a href=" https://phdcsseiden.github.io/Musician/ ">  Listen to his favorite playlists, dedicated to you.  </a> <b>Later</b>
 
 
 - The Despot Dictator you never knew <a href=" https://phdcsseiden.github.io/Knew/ "> Read  </a> 
