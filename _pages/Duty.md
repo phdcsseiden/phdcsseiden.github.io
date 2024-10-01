@@ -17,7 +17,7 @@ modified: 2023-08-23
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> E pluribus unum </b>.   <b> We the People. </b>
+E pluribus unum  <a href=" https://www.si.edu/object/e-pluribus-unum-gazetteer-united-states-america%3Asilgoi_68301 "> Our Founders Preferred Motto </a>    <b> We the People. </b>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
