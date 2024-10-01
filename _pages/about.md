@@ -38,7 +38,7 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Open  </a>
+<b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome. Feel At Home.  </a>
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
