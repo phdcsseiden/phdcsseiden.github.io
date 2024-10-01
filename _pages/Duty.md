@@ -11,6 +11,28 @@ modified: 2023-08-23
 
 
 
+<img src="https://media.npr.org/assets/img/2022/12/15/gettyimages-89046627_wide-7aea08d5387b458f7c59aeb64ef516a394042be9.jpg?s=800&c=85&f=webp" alt="Menorah" width="500" height="333">
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<b> E pluribus unum </b>.   <b> We the People. </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<b>Please Note:</b> Only for some. Only a few Elites.  It's always a good idea to mind your business. 
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+<b> Matthew Chapter eleven, verse twenty-eight: Come to me, all you who are weary and burdened, and i will give you rest. </b>
+
+
+<hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 -Transnational Repression  <a href=" https://phdcsseiden.github.io/Tr/ "> Read </a> 
 
