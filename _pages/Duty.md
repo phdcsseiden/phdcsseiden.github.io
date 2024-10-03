@@ -49,9 +49,6 @@ modified: 2023-08-23
 - Quotes <a href=" https://phdcsseiden.github.io/quotes/ "> Read  </a> 
 
 
-- Alain is very Musical <a href=" https://phdcsseiden.github.io/Musician/ ">  Listen to his favorite playlists, dedicated to you.  </a> <b>Later</b>
-
-
 - The Despot Dictator you never knew <a href=" https://phdcsseiden.github.io/Knew/ "> Read  </a> 
 
 
