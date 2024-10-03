@@ -38,12 +38,6 @@ redirect_from:
 
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-
-
-<b> Wrath of God </b>
 
 
 
