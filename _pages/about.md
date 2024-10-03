@@ -35,7 +35,13 @@ redirect_from:
 
 <b> Alain G. Shumbusho and Miss Grace Ingabire at Massachusetts Institute of Technology, Cambridge Mass, United States. Photo Archive for History. 2022. </b>
 
+
+
+
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
+
+
+
 
 <b> Wrath of God </b>
 
