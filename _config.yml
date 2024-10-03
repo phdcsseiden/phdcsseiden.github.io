@@ -26,7 +26,7 @@ comments:
     shortname            : "Wrath of God"
   discourse:
     server               : # https://meta.discourse.org/t/embedding-discourse-comments-via-javascript/31963 , e.g.: meta.discourse.org
-  facebook:              : "Wrath of God"
+  facebook:              : Wrath of God
     appid                :
     num_posts            : # 5 (default)
     colorscheme          : # "light" (default), "dark"
