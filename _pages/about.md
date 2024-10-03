@@ -23,7 +23,7 @@ redirect_from:
 
 
 
-<b> Duty </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome  </a>  <b> Feel at Home. </b>
+<b> Duty Escalation </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome  </a>  <b> Feel at Home. </b>
 
 
 
