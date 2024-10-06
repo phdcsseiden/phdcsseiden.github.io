@@ -8,7 +8,7 @@ modified: 2023-09-15
 
 
 
-<b> Last Updated: 8/13/2024 </b>
+<b> Last Updated: </b> 8/13/2024 
 
 
 ## Transnational Repression.
@@ -19,7 +19,7 @@ modified: 2023-09-15
 - <a href="https://www.fbi.gov/investigate/counterintelligence/transnational-repression"> Transnational Repression. </a> Fed.
 
 
-- <a href="https://www.state.gov/reports/2022-country-reports-on-human-rights-practices/rwanda/#:~:text=Transnational%20Repression,-There%20were%20reports&text=Extraterritorial%20Killing%2C%20Kidnapping%2C%20Forced%20Returns,purposes%20of%20politically%20motivated%20reprisal.TR">  Transnational Repression by Rwanda Report. </a> <b> U.S Department of State. Washington, D.C, United States </b>. <b>2022 Report</b>.
+- <a href="https://www.state.gov/reports/2022-country-reports-on-human-rights-practices/rwanda/#:~:text=Transnational%20Repression,-There%20were%20reports&text=Extraterritorial%20Killing%2C%20Kidnapping%2C%20Forced%20Returns,purposes%20of%20politically%20motivated%20reprisal.TR">  Transnational Repression by Rwanda 2022 Report. </a>  U.S Department of State. Washington, D.C, United States.
 
 
 
