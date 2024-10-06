@@ -39,7 +39,9 @@ modified: 2023-09-15
 - <a href="https://www.theguardian.com/world/2023/oct/10/rwanda-accused-of-broad-campaign-of-repression-against-dissidents"> Human Rights Watch report detailing alleged abuses at home and abroad raises questions over UK government’s asylum plan.  </a> Rwanda accused of broad campaign of repression against dissidents
 
 
-- <a href="https://cd.usembassy.gov/statement-of-concern-related-to-certain-minerals-supply-chains-from-rwanda-and-eastern-democratic-republic-of-the-congo-contributing-to-the-ongoing-co/"> Statement of Concern Related to Certain Minerals Supply Chains from Rwanda. </a> <b> Natural Resources.</b>
+- <a href="https://cd.usembassy.gov/statement-of-concern-related-to-certain-minerals-supply-chains-from-rwanda-and-eastern-democratic-republic-of-the-congo-contributing-to-the-ongoing-co/"> Statement of Concern Related to Certain Minerals Supply Chains from Rwanda. </a>  Natural Resources.
+
+
 
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">  
@@ -47,6 +49,6 @@ modified: 2023-09-15
 
 
 
- Active Agent on Field from Rwanda / Umutoni Stella ("Connecticut based as of 2023"). 
+ 
 
 
