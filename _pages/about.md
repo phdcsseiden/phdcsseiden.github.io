@@ -22,8 +22,6 @@ redirect_from:
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
-<b> Founder: Alain G. Shumbusho. </b>
-
 
 <b> Duty Escalation </b>  <a href=" https://phdcsseiden.github.io/Duty/ ">  Welcome  </a>  <b> Feel at Home. </b>
 
