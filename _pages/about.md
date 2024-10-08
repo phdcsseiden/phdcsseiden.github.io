@@ -13,7 +13,7 @@ redirect_from:
 
 
 
-<img src="images/IMG_6246.jpg">
+
 
 <b> Alain G. Shumbusho and Miss Grace Ingabire at Massachusetts Institute of Technology, Cambridge Mass, United States. Photo Archive for History. 2022. </b>
 
