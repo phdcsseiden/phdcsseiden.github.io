@@ -35,7 +35,7 @@ Turkey, Tajikistan, Egypt, Russia, Turkmenistan, Uzbekistan, Iran, Belarus, and 
 - US to send new $225 million military aid package to Ukraine, officials say. <a href=" https://apnews.com/article/ukraine-russia-military-aid-us-e0a07e45c4b6656d128c5df8c51357fb"> Click Here. </a>
 
 
-- <b>2023: US suspends military aid to Rwanda over support for M23 rebels in DRC </b> <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> Click Here. </a> (Because of <a href=" https://www.merriam-webster.com/dictionary/despot#:~:text=%3A%20one%20exercising%20power%20tyrannically%20%3A%20a,a%20brutal%20or%20oppressive%20way"> Brutal Despot Dictator Kagame Paul. </a> ) 
+- <b>2023: US suspends military aid to Rwanda over support for M23 rebels in DRC </b> <a href=" https://www.theafricareport.com/323896/us-suspends-military-aid-to-rwanda-over-support-for-m23-rebels-in-drc/"> Click Here. </a> (Because of Incompetent Leadership of <a href=" https://www.merriam-webster.com/dictionary/despot#:~:text=%3A%20one%20exercising%20power%20tyrannically%20%3A%20a,a%20brutal%20or%20oppressive%20way"> Brutal Despot Dictator Kagame Paul. </a> ) 
 
 
 - <b>2012: U.S. cuts military aid to Rwanda over Congo rebel support </b> <a href=" https://www.reuters.com/article/idUSBRE86K0AY/"> Click Here. </a> (Because of <a href=" https://www.merriam-webster.com/dictionary/despot#:~:text=%3A%20one%20exercising%20power%20tyrannically%20%3A%20a,a%20brutal%20or%20oppressive%20way"> Brutal Despot Dictator Kagame Paul. </a> ) 
