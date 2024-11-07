@@ -18,7 +18,7 @@ modified: 2023-12-15
 
 
 
--Your Healthy <b>Environment</b> (His environment is undeniably toxic.)
+-Your Healthy <b>Environment</b> (His ("Extremist Islamist Imam Kagame") environment is undeniably toxic.)
 
 
 
@@ -38,7 +38,7 @@ modified: 2023-12-15
 
 
 -When you build up and stand firm, he pursues you in the U.S. under transnational repression. We must answer him under <b> <a href=" https://www.france24.com/en/live-news/20220902-wrath-of-god-israel-s-response-to-1972-munich-massacre"> Operation Wrath of God</a> 
-  </b> <b> U.S. Version. </b>
+  </b> <b> US Version. </b>
 
 
 
