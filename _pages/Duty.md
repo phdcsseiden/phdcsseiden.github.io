@@ -108,7 +108,7 @@ Jeannette Kagame is the one life gift we have ever had for the past couple of ce
 
 
 
- <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/GEN+12.html "> <b> ☆ ☆ ☆ ☆ </b>. </a>   
+ <a href=" https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/GEN+12.html "> <b> ☆ ☆ ☆ ☆ </b> </a>   
 
 
 
