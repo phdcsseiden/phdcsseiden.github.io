@@ -1,6 +1,6 @@
 ---
-permalink: /Duty/
-title: "Duty"
+permalink: /About/
+title: "About"
 modified: 2023-08-23
 ---
 
