@@ -168,5 +168,5 @@ History repeats itself. ~George Santayana
 
 
 
-<b> Wrath of God </b>
+
 
