@@ -55,8 +55,6 @@ modified: 2023-08-23
 - Congress  <a href=" https://phdcsseiden.github.io/Congress/ "> See </a> <b>Later</b>
 
 
-- His Dictionary <a href=" https://phdcsseiden.github.io/Dictionary/ "> Read </a> 
-
 
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
@@ -74,13 +72,6 @@ modified: 2023-08-23
 Jeannette Kagame is the one life gift we have ever had for the past couple of centuries. <b>God Bless Her</b>.
 
 
-<hr style="height:2px;border-width:0;color:gray;background-color:gray">
-
-
-<b>Founder:</b>   Prof Dr. Alain G. Shumbusho
-
-
-<b>Location:</b> Manhattan-New York City, New York, United States of America
 
 
 
