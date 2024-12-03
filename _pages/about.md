@@ -42,9 +42,6 @@ modified: 2023-08-23
 - Photo Gallery <a href="  "> Open  </a> <b>Later</b>
 
 
--Transnational Repression at Work/Business & School <a href="  ">  Read </a>  <b>Later</b>
-
-
 - Quotes <a href=" https://phdcsseiden.github.io/quotes/ "> Read  </a> 
 
 
