@@ -54,9 +54,6 @@ modified: 2023-08-23
 - Congress  <a href=" https://phdcsseiden.github.io/Congress/ "> See </a> <b>Later</b>
 
 
-- His Dictionary <a href=" https://phdcsseiden.github.io/Dictionary/ "> Read </a> 
-
-
 <hr style="height:2px;border-width:0;color:gray;background-color:gray">
 
 
